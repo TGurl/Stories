@@ -1,0 +1,27 @@
+[description]
+The story takes place in a fictitious country loosely based upon the US.
+The country has many mixed features from both the US and Europe. Its
+geographical location is basically where the US is in the real world
+
+[main]
+name = Laura Davis
+age = 18
+cup = C
+born_in = White Mountain, small town in the North
+
+[friends]
+best_friend = [ Marisha, 18]
+
+[apartment]
+remark = See apartment.png
+style = One bedroom
+layout  = [
+  living area,
+  kitchen,
+  pantry
+  balcony,
+  bedroom,
+  bathroom
+]
+
+

@@ -1,0 +1,488 @@
+# A Hot Summer
+_an erotic tale by TransGirl_
+
+## Chapter One
+The days grew longer and hotter. The air conditioning had trouble keeping
+everything cool, some of the girls even used their notepads as fans to make it
+bearable. Our classroom was situated on the south part of the school and
+therefore the sun burned on it for almost all of the day. Just 10 more minutes
+before the last bell would ring, summer break had finally arrived. Just 10 more
+minutes.
+
+"Well," the teacher raised her voice to overcome the noise coming from the air
+conditioner, "it's almost time. Hope you all will have a great summer and all I
+have to say is you were a wonderful class this year. Thank you all so much for
+being my pupils." We all clapped and thanked Miss Rosenbaum for being our
+teacher and I felt sad she wouldn't be my teacher anymore.
+
+Finally the bell rang and we all got up, grabbed our bags for the last time
+this year and made our way to our lockers. As was tradition in our school on
+the last day we had to empty our lockers and take it all home with us. As
+always I had cleared most of it during the last week so I didn't have to carry
+much.
+
+"Hey Luna," a voice next to me said. It was Troy Fielder and instantly I felt
+myself blush. "I just wanted to wish you a great summer, okay?" I giggled
+softly and just about uttered "Same to you, Troy". The girl next to me bumped
+me and said "Wow, Troy Fielder wishing you am great summer? You're getting
+there girl!" I laughed and walked out of the school with my head held high. As
+I walked outside I saw my mother waiting for me. I opened the car door and said
+"Hey mom, summertime!"
+
+As we drove home we chatted for a bit before my mother said "And ready to go to
+uncle Dave?" Dave was my mother's brother and he had a huge farm. As a city
+girl I loved going to stay with him, he had horses, cows, sheep and chickens.
+Next to that he also had two Golden Retrievers: Rover and Benji. And the best
+part there was a pond nearby where you could go swimming.
+
+Instead of going home my mother kept on going and I said "Didn't you miss the
+exit?" My mother laughed and said "No, I've got a little surprise. Ah, I might
+as well tell you now. Luna, you're 16 now and it's time we had _the_ talk. I
+really don't want to do this, but I guess it's time."
+
+I just stared at her and thought "Really? Now? Here in the car?" My mother
+quickly looked at me and said "Don't be so upset. You know it was coming. Well,
+your father and I thought it best to get you some birth-control. I've made an
+appointment and the doctor is expecting us. So here we go."
+
+"But mom --" I protested
+
+"No buts, we're doing this. And to make up for it we are going shopping." mom
+cheered. "You really need some new bikini's and maybe even a few new dresses."
+
+I loved shopping with my mom, she had excellent taste and maybe this time I
+could get some makeup too. The shopping spree made going to see the doctor
+bearable and mom even smiled a little. She loved spoiling me as I was her only
+daughter. She always told me how much she loved my three older brothers, but
+she always wanted a daughter too and she felt so happy when I was born. For as
+long as I could remember we always were very close.
+
+The doctor's office was conveniently close to the mall and the cool air made me
+shiver a little. My mother checked with the assistant when it was our turn and
+I sat down in the waiting room. My nerves were raging through my body and when
+my mom sat down next to me she took my hand and said "Nothing to be nervous
+about."
+
+After a few minutes we were called and we followed the doctor into her office.
+As we sat down she said "Ah, birth control. I see you're 16 now Luna. Any pains
+when you have your period?" I was so happy we had a female doctor as I always
+felt more comfortable with her. "No, not really. It's a little irregular,
+sometimes by a week." I replied.
+
+"Ah, that's not unusual. The pill will help control that too, it's known too
+make it more regular as well. Now, I don't see any problems in your history.
+But I do have to ask. Are you sexually active?" I blushed and stared at my mom
+who just nodded and said "Be honest honey. I won't get mad."
+
+"Do you mean if I have sex?" I replied hesitantly with a soft voice. The doctor
+replied "Yes, and I also need to know if it was recently and if you used any
+protection." The doctor made it sound like it was the most normal thing in the
+world, but to my 16 year old ears it was amazing that she even dared to ask.
+
+Again I looked at my mom and didn't say anything. "If you are more comfortable
+talking about this without your mother here, I'm sure she'd understand." the
+doctor said. I shook my head and said "No, it's okay. Sorry mom. But yes, I've
+had sex and no not recently. It was almost 3 months ago." I sagged down in my
+chair and couldn't believe I had just admitted not being a virgin anymore with
+my mom sitting right there next to me.
+
+My mother took my hand an said "Luna, look at me. I knew you were having sex, I
+don't know how but I knew. That's why we are here. You are growing up, Luna and
+sex is a part of it. I want us to talk openly about sex, boys and stuff. I
+don't really care about it. What I do care about is you being honest with me."
+
+I rose up a little and said "Really? You want that?"
+
+My mother nodded, bumped me and said "If you are willing to be open and honest,
+I will do that too. Okay?" I smiled and looked at the doctor who just smiled.
+"I wish I could have that with my mother." she said, "Okay, as it was three
+months ago we can safely assume you aren't pregnant."
+
+"Oh gosh, no" I blurted out. My mother burst into laughter when she heard me
+blurt it out. The doctor chuckled and wrote a prescription. "Just get this at
+the pharmacy. Now Luna, I advise you to take one every morning. And so you
+know, you can start tomorrow. Just take the one with the corresponding day.
+It's, let's see, the 11th now, so you have to take number 12 tomorrow. That's
+just to keep track. When your period starts you stop with that strip and start
+a new one right after your period, okay? Clear?" I nodded and said "My mom can
+help me with that. I guess."
+
+"That's true," the doctor replied, "Well, that's it. And oh yes, please be
+careful. The pill won't protect you in these first few weeks. If I'm correct
+you're ovulating now and we might be a little late. So just be careful, okay
+honey?" I nodded and felt a bit relieved as we left the office.
+
+Once we were outside my mother put her arms around me and said "See, that
+wasn't too hard now, was it? Now tell me, who was he?" I looked at my mom and
+said "Really? You want to know? Well okay then. It was Marshal, you know that
+boy from school who moved away a few months back."
+
+"Marshal? You mean Marshal Robinson? Wow. And how was it? Was it good? Because
+my first time wasn't." my mom said.
+
+"I don't know," I replied, "I can't really compare as I only did it twice." As
+uncomfortable as it was talking to my mom about this, it also felt freeing. It
+felt good to be honest and open about this with my own mother. "And how was
+your first time then?"
+
+"Ah, don't get me started. Dylan Mitchel. What a mistake that was. He didn't
+even wait, he just pushed it in, did his thing and walked away." my mother
+said.
+
+"Wow, how old were you?"
+
+"13, or was I 14. I don't really remember it. It was right before my birthday,
+so 13 I guess. And you?"
+
+"Wow, 13. My gosh. For me it was a year ago. You remember when we were at that
+party of the Robinson's? When you asked where I had been? Well, I was up with
+Marshal in his room when it happened. I was so scared you would walk in on us."
+
+My mother started laughing. "Wow, my daughter is a dare-devil. Who knew?"
+
+We locked arms and laughed while we walked into the mall. The ice bad been
+broken and we just switched topics. During our shopping spree we got three new
+bikini's for me, five new dresses, some shirts, skits and shorts and two pairs
+of shoes. I even got my first heels. To make it even better my mother helped me
+get my first makeup. Just before we went home we stopped at the pharmacy to get
+my prescription.
+
+When we got home my brothers were in the back yard doing something stupid and
+my father sat in the living room watching a game. He smiled when he saw us walk
+in and as he hugged me he whispered "How was it at the doctor's? Everything go
+well?" I nodded and whispered "Yes dad, it's all good." and with that enough
+was said.
+
+The next morning I stood in the bathroom and stared at the strip in my hand. I
+felt strangely nervous as I didn't like taking pills at all. But I pushed
+number 12 out of the strip and swallowed it with some water. When it was done I
+felt like a real woman and looked at myself in the mirror. Then I showered,
+washed my hair and afterwards I walked out with my hair in a towel, another one
+bound around me.
+
+My eldest brother stormed out of his room and shouted "Took you long enough, I
+need to get to practice!" He almost pushed me over and I just reacted with a
+firm "Jerk!" and went into my room. I sat down at my vanity, plugged in the
+hair dryer and proceeded to blow dry my hair as I brushed it. When I was ready
+I applied a little eye liner and mascara before putting on one of my new
+bikini's. I wrapped a skirt around my waist, stepped into my flip flops and
+checked myself in the mirror. I was ready for the summer.
+
+When I walked into the back yard, my mother was laying on one of the long
+chairs. I laid down next to her and she handed me the sun block. "Smear
+yourself honey," she said without looking at me, "protect your skin."
+
+I put sun block on my legs and started to rub it in as one of my brothers
+walked out. He sat down in one of the chairs and just watched me rub the lotion
+over my legs. "Like what you see?" I said to him and he quickly turned his face
+away. I proceeded to put lotion on my arms and body, laying down when I was
+finished. I felt nice feeling the sun on my skin.
+
+A few minutes later my dad came out and said "Come on Josh, put on a shirt.
+Time to go." Every Saturday my father took the boys to the football game and
+this time they had to leave early. My oldest brother would join them later as
+he had his last practice before summer break. When we heard the car start my
+mother uttered "Finally some peace and quiet." I giggled and it was nice not
+having my brothers around.
+
+After about an hour my mother said "Okay, time for a break. We need to get out
+of the sun. Come." We got up and walked inside. The midday sun was just to
+brazen to bathe in it, for the next few hours we needed to stay in the shade or
+inside the house. My mother poured us two glasses of her homemade lemonade and
+I said "You really have to teach me this recipe one day."
+
+"Ah, yes. My grandmothers recipe. Passed down the generations from mother to
+daughter. Next time I'm making this I will tell you, okay?" she chuckled. We
+sat down at the kitchen table and my mother said "Did you take your pill?" I
+nodded and said "Number 12 down the hatch"
+
+"Good, good. Now, another question. Do you want to go to uncle Dave this year?
+Or is it over?"
+
+"No, I want to go. I was looking forward to it."
+
+"Okay, it's just your brothers are going to football camp this year."
+
+"Ah, they finally got you to let them go, did they?"
+
+"Yeah, and your uncle wasn't a big help either. He went there when he was about
+your age. He loved it so much and now he filled their heads with it."
+
+"Lovely, but can I go to camp too?"
+
+"What? To football camp?"
+
+"No! To a camp for girls maybe?"
+
+"Oh, we thought you wanted to go to the farm again this year. So it never
+crossed our minds. Do you want to go to camp?"
+
+"No, but it would be nice if you had asked at least."
+
+"Touche, that would have been nice indeed. I'm so sorry, I will keep it in
+mind for next year. Well, I can make up for it a bit and see if you can go to
+the farm a bit earlier? Tomorrow maybe? Would you like that?"
+
+"Yes, that would be nice. But will uncle Dave be okay with it?" My mother
+grabbed her phone and said "I don't know, let's ask him."
+
+"Hey brother, it's me. What? Don't be a jerk. You know who I am. You're so
+lame. What? Yes, is it okay if I bring Luna tomorrow? Yes. Good. What? No, the
+boys are going to camp on Tuesday, yes football camp. Yes, the same one you
+went to. My god, keep up. What? No, Brandon and I will see what we are going to
+do during these weeks. Well, yes maybe. Okay, fine. Yes, see you tomorrow. Love
+you too brother, bye."
+
+My mother had a weird relationship with her brother, they were really close and
+loved to tease each other but for outsiders it might look like they always
+fought. Knowing better I couldn't stop giggling when I heard the one sided
+conversation. "So, it's okay?" I asked and my mother nodded yes. I loved my
+uncle Dave, he was just a bit older than my mother and he always was so much
+fun. He took over the farm when my grandparents got to old and they moved to
+Florida a few years later. "Mom?" I said, "maybe you and dad could go visit
+gramps and granny?"
+
+My mother stared at me and said "Now that's a good idea? I haven't seen them in
+almost two years! I will talk your father into it." I burst into laughter
+because I knew how much my father hated to fly to Florida. "It's just to humid
+over there," he always said, but he loved his in-laws very much because his
+parents passed away a couple of years ago.
+
+My mother jumped up and said "Okay, we need to pack." She pulled me up from the
+chair and we started packing for the next couple of weeks. As my mother had
+taught all of us how to do the wash, I didn't have to bring all that much.
+"Now", my mother said, "Just call us when you want to come home." I nodded and
+an hour or two later my bags were packed and we sat down at the kitchen table
+again enjoying another glass of lemonade.
+
+My mother looked outside and suggested to get some more sun. We walked to the
+back yard and as we lay down I started to apply some more sun block. "Let me
+help you," my mother said. As she smeared the lotion over my back, she undid
+the bow of my bikini top. I gasped when I felt my top going slack. My mother
+said "Ah, I've seen them before." And she continued rubbing the lotion all over
+my back, then she slowed down a little and poured some more block on her hands.
+She then pulled me a little closer to her and started to rub the lotion over my
+belly. Her movements got a bit more sensual and although it felt uncomfortable
+I didn't protest. Slowly she moved higher until she touched my breasts, she
+started to massage them softly and I leaned a bit backwards.
+
+At first it felt uncomfortable, but it also felt really nice to feel her soft
+hands on my skin. "Ooh, someone's getting a bit excited." she said as she
+squeezed my nipples softly. She then lifted the other strand of my top over my
+head and I turned towards her. She kept squeezing my boobs and I just stared
+into her eyes. Without thinking about what was happening we kissed, gently at
+first but it became more passionately with every kiss.
+
+My hands went to her back and I unclasped her top too, my hands went to her
+boobs and I squeezed them softly. Our mouths connected and our tongues
+entangled into a dance. She tasted so good, my mothers hands caressed every
+inch of my torso as mine caressed hers. My mother pushed me down and got on top
+of me, our breasts pressed between us. Her mouth firmly against mine, our
+tongues kept on touching, the she got up, took my hand and guided me inside.
+
+We dropped on the couch and my mother started sucking my breasts, I couldn't
+help but moan and when I felt her hand going down between my legs I
+automatically spread them to give her access. With her soft fingers she started
+to rub my clit and I moaned. "Oh mom, yes. Yes." I moaned. With her fingers she
+spread the lips of my vagina and slide one finger inside me. I got so wet
+feeling her hands inside me.
+
+"Oh Luna, you don't know how long I wanted this." my mother panted and as she
+pressed her mouth against mine again, she slid another finger inside me. I
+moaned as our tongues started another dance. After she had licked my juices of
+her fingers, she got up, pulled down my bottoms, spread my legs and touched my
+clit with her tongue for the first time. I couldn't help but groan as I felt a
+jolt going up my spine. My mother proceeded to lick my slit and then pushed her
+tongue inside my cunt. "Oh mom, that feels nice. Oh yes, eat me mother." I
+grunted.
+
+After a few minutes my mother got up, took of her bikini and lay down on top of
+me, both of us naked. She squeezed my breasts and pressed her mouth against me
+once again. This time I could taste myself too. Then she spread my legs again,
+placed on of hers underneath me and pressed her wet cunt against mine. She
+started to slide and I could feel her juices flow over me. When our clits
+touched I groaned as loud as I could "Oh mom, yes. Fuck me mom, fuck me. Slide
+that pussy all over mine." My mother started to move her hips faster and faster
+until we both came. "Oh yes mom, come for me. Come all over your daughter."
+
+When she recovered a little from her orgasm, I got up and pushed or down on the
+couch, I placed my cunt on hers and started riding. "Oh Luna, yes. Come for
+your mother. Slide your cunt all over your mother. Come for your mother, oh
+yes, it feels so good, Luna. Oh I've dreamed about this for so long." After a
+few minutes a roaring orgasm rolled through my body and I squirted all over my
+mom. "Oh wow," she said, "a squirter. So nice, yes, squirt all over your
+mother, give it to me." I sagged down on my mothers wet body and kissed her.
+
+When we recovered a bit we went into the kitchen for some lemonade and almost
+immediately started kissing again. I gestured for my mother to sit on the sink,
+I spread her legs and started sucking on her clit while I pushed two fingers
+inside her. "Oh my God Luna, that feels so good." my mother panted. I kept on
+eating my mother until she had another orgasm. We kissed as she did her best to
+get her body back under control.
+
+She took me in her arms, kissed me and whispered "Let's keep this between us,
+okay? The others don't have to know." I agreed and kissed her back. Because it
+was getting late, we grabbed our clothes from the floor and got dressed again.
+We laid down on the lawn chairs and an hour later the boys got home.
+
+They were cheering and shouted that their team had won. My father walked out
+and asked "Did you girls have fun?" My mother answered "You bet we did." and I
+could help but chuckle. My father said "That's nice. I will go for some Mexican
+food, is that okay with you girls?" We both agreed and just as he was about the
+go back in the house my mom whispered to him "You have no idea how much fun we
+had." And she laid her hand on my breast and squeezed it a little.
+
+When my father returned with the food, we sat down at the table on the patio
+and my mother said "Oh, Luna will go to Dave tomorrow. I can bring her so you
+boys have the house yourselves tomorrow. I think I will return the day after,
+so I can help you boys pack for camp. Okay?"
+
+My father kissed her and said "Yes, that would be very okay. Boys, tomorrow we
+can watch the football game, have a steak and have some fun." My brothers
+cheered and the youngest said "Can't she go tonight?" and he bumped my arm.
+"You wish," I replied with a smile.
+
+The next day my mother woke me early as it was a long drive to uncle Dave. He
+lived almost a six hours drive from us. "Wake up Luna," she whispered, "we need
+to go soon. Get up, hit the shower and get ready." I groaned a little and when
+I opened my eyes I noticed my mothers face was very close to mine,
+instinctively I kissed her. She kissed me back and said "No time for that, we
+need to go."
+
+An hour later we had packed the car and my mother left a note for the boys
+stating there was food in the fridge and that she loved them. Just before we
+drove off my father came running outside, tapped on my window and said "You
+can't go without a kiss." I rolled down the window and kissed him on the cheek,
+"Bye dad, see you soon." "Bye pumpkin, have a good time okay." I waved to him
+as my mother backed the car back up, turned it and we drove off.
+
+"Now time for some fun," my mother said and turned on the radio. From the
+speakers our favorite songs blasted and the both of started to sing along. When
+we left town and got on the highway my mother said "Okay, let's make a deal. I
+drive the highway part and when we turn off we can get some ice cream before we
+do the last part. What do you think?"
+
+"Great idea, mom. I love that place." Every year we stopped at the same place
+to get some ice cream and it just was the best. It all started the first year I
+went to visit uncle Dave during the summer. I cried all the way and to make up
+for it my father stopped there to treat me. Ever since then we stopped there.
+
+All along the highway we listened to our favorite songs and we both sang along
+as loud as we could. The wind blew through my open window, my hair waved in the
+wind. It really felt like one of those road trip movies. We chatted about this
+and that, I hadn't seen my mom this happy in years. Not that she was unhappy or
+something, it just was different since what happened between us the day before.
+
+Just over three hours later we turned off the highway, took another left and
+parked near the roadside diner. "Time for some ice cream and I really need to
+go to the restroom." We walked in and I sat down in one of the booths near the
+window. My mother rushed to the restroom and I checked the ice cream card. The
+waitress walked by and I said I was waithing for my mother to return.
+
+When my mom sat down we placed our order and a few minutes later I took my
+first bite of a huge platter of ice cream. My mom just had a soda and a burger
+with fries. We had a good time in the diner and about half an hour later we
+walked back to the car. My mom stopped and said "Since you got your license why
+don't you drive the last part." and she threw me the car keys.
+
+"Really?" I said, "You mean that?"
+
+"Yes, why not? You didn't get that license for nothing."
+
+It had been a few weeks since I got my license and there hadn't been many
+chances for me to drive. I cheered and was excited to get behind the wheel, I
+adjusted my seet, the mirrors and checked everything. I was really nervouse as
+this was the first time I would drive a car with my mom sitting next to me.
+
+I backed out the parking spot and turned left as we got on the road. After a
+few minutes I relaxed a little and my mother turned on the radio again. A few
+minutes later we left town and my mom said "Turn right at the next
+intersection, we're going to take the scenic route." I did as I was told and
+turned right, this was a nice country road and the scenery was breathtaking.
+The longer I drove the car the more relaxed I got. Half an hour later my mother
+said "You'r a good driver, Luna. I'm impressed." and she put her legs on the
+dashboard and started to sing along the radio.
+
+We passed a truck or two and when we were about to pass another my mom said
+"Let's flash him." and just as we were passing the front she lifted her shirt
+and showed her breasts to the truck driver. I burst into laughter as I never
+had seen my mother acting this way, she looked at me and started laughing too.
+"It's so much fun being a girl," she said, "so much fun."
+
+Two hours later I parked the car along the road for a short rest and to drink
+some water. "Oh," I said, "I will be right back." and walked towards the public
+restroom that was available on this parking spot. As I sat down in one of the
+stalls, I took off my bra and put it in my bag. When I returned I said to my
+mom "Why don't you drive the rest of the way. I don't want to drive any more."
+
+My mom shrugged her shoulders and we got back in the car. As soon as we passed
+another truck, I rose up a little and flashed my boobs to him. The driver
+honked his horn and I started laughing "You're right mom, this is fun." I said
+an my mother replied with "I knew you were up to something." and started
+laughing too.
+
+It was almost three in the afternoon when we arrived at the farm. Far away in
+the fields we saw the dust where my uncle was working the fields. My mother
+honked the horn of the car and in the distance we could see my uncle raise his
+arm. My mother and I got my stuff from the car and walked into the house. It
+took almost 15 minutes for my uncle to come in the house.
+
+"Oh hey," he said, "welcome. Hey there Luna, my favorite niece in the whole
+world."
+
+"You only got one niece," I replied.
+
+"True, that's why you are my favorite." My uncle said and hugged my mom. We sat
+down on the porch and I could hear the horses whiny in the stables. "Looks like
+they know you are here," my uncle said, "why don't you go to greet them." I got
+up and ran to the stables. I went into every stable and petted all of them, but
+I took a little more time with _Arial_. When she was born my uncle had given
+her to me and it always was like she knew. Arial bobbed her head and whinied as
+I petted her. "I've missed you too," I whispered, "Maybe we can go riding
+tomorrow, would you like that?" Arial whinied again and stomped her feet. She
+was raring to go.
+
+After I had visited all the horses I went over to the kennels where my uncle
+kept his dogs, two Golden Retrievers called Rover and Buckey. They were so
+happy to see me and I played with them for a while. During the time I was with
+the dogs I got thirsty and made my way over to the house.
+
+The porch was empty, but also was the kitchen. This was a bit strange and I
+went into the living room, but my mother and uncle were nowhere to be seen.
+They weren't in the back yard either. I got a bit worried as I couldn't find
+them anywhere. I walked out the house again and looked over the fields,
+nothing. Nor were they in any of the barns, stables.
+
+When I went back into the house I heard a noise coming from upstairs. I went up
+the stairway and the noises became a little louder. I noticed the door to my
+uncle's bedroom being ajar and I made my way over as quiet as I could. When I
+peeked in I gasped. On the bed I saw my uncle laying on his back, my mother sat
+on top of him and she went up and down. He breasts flopping in the air. "oh how
+I've missed this brother, you feel so good" I heard my mother say.
+
+I put my hand in front of my mouth and couldn't believe what I was seeing. My
+mother was having sex with her own brother. I didn't want to, but I couldn't
+stop watching. The longer I watched them the more excited I got. I pulled up my
+dress and placed my hand in between my legs.
+
+After a few minutes I wanted more, I wanted to be with them so I opened the
+door. My mother squeeld when she saw me entering the room, my uncle covered
+himself as quick as he could "Oh Luna, I didn't --" my mother stared to say. I
+just put my finger up and walked over. Just as I was about to get on the bed, I
+took off my dress, pulled the sheet from my uncle's hand and took his cock in
+my hand. I looked at him and then just went down and starte sucking his cock.
+My mother just sat "Oh, okay."
+
+After sucking him for a bit, I got on top of him and placed his cock against my
+wet cunt. As I kissed my mother I slowly went down and felt my uncle's cock
+sliding into me. My mother's tongue entered my mouth and I started riding my
+uncle. As I started to moan my mother said "Doesn't he have a great cock? Oh
+Luna, ride him. Make your uncle come. Oh yes my baby, fuck your uncle."
+
+After a few minutes, my uncle gestured for me to get off and he pushed my
+mother on her back, she spread her legs and my uncle pushed his cock in her
+waiting pussy. I sat down on my mother's face and she started to lick me. I
+stared at my uncle and we kissed. "Oh yes, uncle fuck your sister. Make her
+come all over your cock." I hissed.
+
+
