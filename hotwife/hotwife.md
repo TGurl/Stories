@@ -1,489 +1,416 @@
 # How I became a hot wife
-by Transgirl, 2022
 
-#### preamble
-_This story is totally fictional. Any resemblance to a person, living or dead,
-is purely coincidental._
-
+## Preface
+_This story is purely fictional. Any resemblance with any person, living or
+dead, is purely coincidental._
 
 ## Chapter One
-The music was loud, I could feel the beats in my stomach. It had been years
-since I had been in a club like this and I felt a little out of place. Not that
-I was the oldest one there, far from it, the last time I was in a club like
-this I was still single and trying my best to look attractive to the other sex.
-But I had been married to a man who I loved for almost five years now. Like
-with all marriages ours had become stale, a rut. We had been together for
-almost four years, living together for almost two before he asked me to marry
-him.
-
-At first it was exciting, exhilarating, then he got a very demanding job,
-hardly was home and when he was he simply was too tired to do anything else but
-sit on that couch, watching TV. Whenever I saw him laying there I felt sorry
-for him and angry at him at the same time. He loved his job, it was everything
-he always wanted, but to what cost? It was ruining our marriage.
-
-Then he got promoted, told me everything would be better as he would have more
-time to spend at home. Nothing was further from the truth. It was expected off
-him to spend time at the golf club, _networking_ they called it. At some point
-he only came home to eat and sleep, it was like I was running a hotel with just
-one guest. Sure he was happy and all, but I wasn't. I wanted him to spend some
-time with me, to be that boy again I fell for all those years ago.
-
-One day it just got too much for me, I couldn't take it anymore. I was done
-being his maid and I just cooked dinner for myself. By the time he got home he
-didn't even check the fridge if there was any dinner, he just said "Hey, no
-dinner?" I exploded, told him how I felt. Everything came out and I mean
-everything. When I was done I shouted "No, don't say a word. Not a word. I do
-not want to hear it. No more excuses. This is about me this time. I am lonely
-in what should be a loving marriage. You can sleep anywhere you want, but not
-in my bed!" I ran upstairs, fell on the bed crying.
-
-The next morning the house was empty, I looked everywhere only to find out he
-had been sleeping in the guest bedroom. He didn't even make the bed before he
-left. It was a long, hard day for me. All I could think about was confronting
-him when he got home, we needed to sit down and talk. About our future, about
-everything. The later it got the more anxious I became and by the time I heard
-him park the car outside I was shaking.
-
-He didn't say a word when he came in, he just saw me sitting at the kitchen
-table, got himself something to drink and sat down across from me. We sat there
-in silence for a few minutes, the tension between us was so tight you could
-almost cut it with a knife. It was up to me to start talking.
-
-"We need to talk," I whispered with a broken voice as I was holding back the
-tears the best I could.
-
-"We sure do," he replied, "I thought we both were happy. I really did."
-
-"Well, one of us is," I replied, "and it isn't me."
-
-We were silent for another minute or two. "Aren't you going to say anything?"
-he asked me, "I've been thinking about this all day, even my boss asked me what
-was wrong. When I told him I had some issues at home, he sent me home. Go talk
-to her, he said. But I don't know what the problem is."
-
-"That's exactly it," I almost shouted, "You're so blind that you don't even see
-that. When was the last time you took me to dinner? Or a movie? When was the
-last time we did anything together? Huh? Tell me. When?"
-
-"We went out two weeks ago," he replied.
-
-"And where did we go?" I got more and more angry by the minute, was he really
-this blind? "We went to a dinner party organized by your boss. You had a
-wonderful time talking to your colleagues, your bosses and clients. I didn't
-know anyone there. I sat on a chair in the corner all night, you didn't even
-bring me a drink. I had one wine, ONE WINE that evening. The only time you
-talked to me was to tell me we were going home. You talked about how nice it
-had been, all the way home. You never asked me how it had been, not even once."
-
-"Is that true? I thought I saw you talking to Madeline. Weren't you talking to
-her?"
-
-"Oh you mean that moment when she came up to me to ask me if I wanted something
-to eat? Or that time when she offered me another wine? She was hosting the
-party, that's what a hostess does. She mingles, talks to everybody, makes sure
-they all have something to eat or drink. For the rest I was on my own. Those
-women were talking about going to the spa or having their nails done. You know
-I'm not like that, you know that I'm not that kind of girl. You always said
-that's what attracted you to me."
-
-"It still is," he replied.
-
-I lowered my voice and said "Then show it. Not just tell me you love me, show
-it to me. I feel like I mean nothing to you anymore, that I'm just _arm candy_,
-someone who makes you dinner and cleans the house. I need to know you still
-love me."
-
-He leaned forward and I saw tears in his eyes. "Oh Laura, I am so sorry I hurt
-you. I never meant to hurt you, I really thought you were happy too. What can I
-do to fix this? Please tell me, I am at a loss here."
-
-"I think we need some counseling," I said, "I really think we need some help.
-Because I am so scared that if we don't we will be back here any time soon.
-Will you go to therapy for us? You told me once you would do anything to have
-me by your side, then you asked me to marry you." I felt the tears rolling down
-my cheeks as I remembered that night when he proposed to me, it was one of the
-best nights of my life.
-
-"If that's what you want, that's what we'll do," he said with determination in
-his voice. That was just another thing he had to prove to me, he had broken to
-many promises by now.
-
-"Just one more thing," I whispered, "and please be honest with me. I need to
-know you're telling me the truth. Is there someone else?"
-
-"What!" he blasted, "I cannot believe you would ask me something like that! No,
-there isn't anybody else. I've never even thought about something like that.
-Not once, not since the moment we first met. You are the one for me, Laura, the
-only one for me."
-
-I started crying "That's what I wanted to hear. Sorry for asking but I just had
-to know, to see your reaction. I am so sorry!"
-
-We hugged and he told me he understood why I asked. "I guess all kinds of
-scenarios went through your head all the time you were alone. I accept your
-apology and thank you for still trusting me." I trusted Travis with my life,
-never ever did I not trust him. That trust just had taken some blows and it was
-near breaking, but it never did.
-
-The first time we had a session with Julie, our marriage counselor, I was sure
-he wasn't going to show up. He had told me he was coming straight out of work
-and it was almost time. Mere seconds before she called us in he ran into her
-office. "So sorry, there was a huge accident on Lincoln. I was stuck there for
-almost twenty minutes. I tried to reach you." I looked on my phone and saw all
-the messages he had left. "Oh, I am so sorry. I turned off the sound as not to
-disturb anyone here. I am so sorry."
-
-The sessions with Julie did miracles for us. The first few sessions were just
-telling each other how we felt and what we wanted from our marriage, we learned
-to be open and honest to each other, not to hold anything back anymore. We
-implemented a safe zone in our house, the kitchen table. Whenever either one of
-us needed to talk we sat down there, told each other that it was a safe spot to
-talk and opened up.
-
-Julie gave us practical guides on how to implement a lot of things to make our
-marriage better, the best one she gave us was _date night_. "Just pick a day,
-any day. That day will be just for the two of you. Travis, you block that day
-in your agenda at work. No more calls after let's say two in the afternoon.
-When the clock strikes two, you are out of there. It's time to spend with your
-wife. Go shopping with her, do the things she likes to do and share with you."
-
-"Can it be three?" Travis asked with a slight smile.
-
-"You can pick any time you want, but you have to abide by it. No more staying
-late that day, no more excuses. Anything that has to be done after that time
-can either wait or be done by someone else. The company will not go bust
-because you took some time off to spend with your wife."
-
-Travis turned to me and said "How about Thursdays? That way I can still finish
-anything before the weekend on Friday." I just nodded okay. He turned to Julie
-and said "I will block everything on Thursdays after three o'clock. That would
-mean I could be home at half past three at the latest."
-
-"Just make sure you keep that promise," Julie said sternly, "I've done this
-with many couples and all of them said it was the best thing they ever did. The
-people at their jobs now know not the bother them at those times. And another
-thing, you will notice that it will relax you too. You two can do anything you
-want during that time, just make sure you spend it together."
-
-The first Thursday I couldn't wait for him to come home at half past three and
-when he didn't show up in time I was sure he was breaking another promise. I
-checked my phone to see he hadn't even called to say he was late. I felt myself
-getting angry at him. That all melted like snow for the sun when he finally
-walked in the door. He was wearing a tuxedo and had a clothes bag in his hand.
-
-"Sorry I'm late, but I had to wait for the cleaners to finish this. Please take
-it, prepare yourself. We're going out."
-
-"Where?" I asked him but he wouldn't tell me. I took a quick shower, did my
-hair and makeup, opened up the bag and gasped. It was a beautiful dress, just
-like the one I wore when we got married. When I finally walked in the living
-room, he knelt and handed me a corsage. "Laura Davis. I've neglected you for
-far too long and I take all the blame. I am so happy you were willing to fight
-for us and I have one little question for you. Will you marry me again?"
-
-I started crying and nodded yes. I hugged him, kissed him and shouted "Yes,
-yes, I will marry you again." We got into our car and drove to a small church
-nearby. To my utter surprise he had invited my family over and we renewed our
-vows together in front of them all. It was one of the best things he had ever
-done for me. It was so magical and wonderful I fell in love all over again.
-This was the man I loved, the caring, loving man.
-
-Another thing Julie told us was to really be open and honest with each other,
-which included our deepest, darkest fantasies. "Only when you share everything
-with each other you will know how much you can trust each other." she said.
-"That way," she said, "you can try and find ways to satisfy those fantasies.
-You could role play for instance or maybe even try them for real. This isn't
-easy, I know, just take it slow at first. Baby steps."
-
-That was easier said than done, it meant really opening up and telling each
-other what our sexual fantasies were. To get some more information I looked
-online for help. I read stories about how good it had been for relationships,
-but also that it had ruined others. One woman told how she discovered he had
-rape fantasies, violent rape fantasies. She divorced him just months later
-after which he acted upon his fantasy and brutally raped a young woman who
-barely survived.
-
-Reading all those stories made me afraid of what was to come, I totally didn't
-want to do this. It's normal to have some secrets, I thought. I also knew
-Travis really was into it and, like Julie said, we both needed to make
-sacrifices to make our marriage work. Until then he had made the most, it was
-time for me to make some too.
-
-"So how will we do this?" Travis asked and I had no clue on how to start or
-even where to start. We had been together for so long and I thought I knew how
-to please him.
-
-"I have no idea, let me just say that I would like to be charmed. Not just go
-upstairs, do it and continue with the rest of the day. I like it to mean
-something, I want to make love not just have sex."
-
-"Ah, like that night when we renewed our vows. You were feisty that night."
-
-"Yeah," I blushed, "like that. You made love to me that night, we both made
-love. It meant something."
-
-"That was a great night," he smiled and I couldn't help but giggle.
-
-"Yes it was. Almost as good as when we did it for the first time. Remember? In
-that stupid one bedroom apartment of yours. With those stupid football posters
-on the wall, it felt like we were being watched all the time."
-
-"Yeah, the walls were like paper there. I am sure everybody heard us."
-
-I started to giggle again "Maybe that's what made it so exciting. I had never
-felt like that with anyone before. I always thought it was you, but maybe the
-fact we could be heard added something to it."
-
-"Wait. What are you telling me here. Do you like it when there is some risk of
-getting caught?"
-
-I blushed, looked at him with my head slightly turned downwards and whispered
-"Maybe."
-
-"Wait a second. You are telling me that you, Laura Davis the most prudish girl
-I know, secretly likes it when she could be caught doing it?"
-
-"I not prudish," I replied, "just a little conservative maybe."
-
-"You didn't deny the other thing I said, did you?"
-
-"No, I didn't."
-
-"So every time I wanted to -- _have_ you, I could have? Like that time we went
-to the _Pussycat Dolls_? I wanted you so much that night."
-
-"If you had made a move I might have responded." I said with a red face.
-
-"Oh my god, now you tell me."
-
-I giggled and said "Yes, it's always been a fantasy of mine. I'm just to scared
-to actually do it. Sometimes I fantasize we're in public when were in bed
-together."
-
-"You do?"
-
-"Yes, it helps me a lot."
-
-"Wow, I never knew. Well, we might have to look into that."
-
-"Okay, now it's your turn. What makes you tick?"
-
-"Oh, I couldn't tell you. I know you will get angry and it's better that I keep
-it to myself."
-
-"That's not fair. Julie told us that it has to come both ways."
-
-"That's true." He took a deep breath and told me about someone he met when he
-was on a business trip. The man was sitting at the bar of the hotel and kept
-looking at a woman who was sitting on the other end, talking to some guy. He
-kept looking at her, not staring or anything, just glances and he had this
-weird little smile.
-
-"I sat down near him," Travis said, "gathering all my courage and then just
-asked him. The man looked at me and said 'See that woman over there? The blonde
-who is talking to that tall guy. That's my wife. She loves flirting with other
-men, dancing with them, kissing them. Sometimes she even sleeps with them. But
-she always lets me watch and we have the best sex after. I love her so much
-that I am willing to give this to her. To let her satisfy her needs.'"
-
-Travis was quiet for a moment, collecting his thoughts then said "Ever since
-then I've been thinking about that. About how I would feel if -- but I know it
-will never happen."
-
-I was dumbfounded at first, couldn't believe what he had just told me. "What
-are you telling me?" I asked him, "Do you want to see me with another man? What
-are you saying?"
-
-He took a deep breath, started to shake a little and said "I've been watching
-these videos online. Of couples who _swing_, as they call it. Most of them say
-that it strengthened their relationships. That they loved each other so much,
-trusted each other so much they were willing to _open up_ their relationship.
-Give room for other people, so to say."
-
-If it hadn't been for the safe space I think I might have smacked him at that
-moment, but I kept you our agreement, calmed myself down and said "That's a lot
-to think about. I don't know how to feel about that."
-
-"I know and I understand. We were meant to be open and honest, weren't we?
-Well, this is it. There isn't anything else. That's my sexual fantasy."
-
-I was quiet for a moment and then asked "So, when we're together do you ever
-think about someone else? Imagine that you're with someone else?"
-
-"Sometimes I do," he replied, "like you imagining we're somewhere else, I
-sometimes thing about that. Yes."
-
-I swallowed my pride and said "Okay then. That ruined the night for me." and
-walked away.
-
-There was some tension between us for a few days, I had to process what he had
-told me and it was a bitter pill for me to swallow. Then one evening when he
-got home I sat at the kitchen table again. When he sat down I said "I am sorry
-about how I reacted, but it wasn't easy for me to hear you say that. Let's just
-find a way how we can -- satisfy -- that fantasy. Let me just tell you I will
-not sleep with anyone, but maybe there's a way we can make it more real."
-
-"I would love that," he replied, "And I've been thinking about it too. I am not
-sorry for telling you as it is the truth. I am rather glad I finally did, it
-lifted a weight from my shoulders. Maybe we could try that role playing thing,
-like we go to a bar and pretend we don't know each other. Something like that.
-We could fulfill both our fantasies, we could do it somewhere more _dangerous_
-and I could pretend you're someone else."
-
-"I could wear a wig," I replied just to indicated I was willing to make another
-sacrifice for him, "I mean, I could look like someone else. We could make up
-back stories beforehand, not tell each other anything and play it out during
-that evening. You could win me over all over again, sweep me off my feet like
-you did the first time we met."
-
-We both got more excited about the idea and that's how I ended up at this bar,
-in this club wearing a nice dress and my wedding ring on the nightstand back at
-the hotel. That night I was Iris, a woman who just got divorced, without any
-children. I was waiting for Travis to come in so we could finally start the
-role play, but it had been half an hour already and I started to think I was at
-the wrong club.
-
-Suddenly a man came standing next to me. "What is a girl like you doing in a
-place like this?" he said. It couldn't have been cheesier and it wasn't Travis
-who was saying it. I looked up and the man smiled with a beautiful smile. He
-was quite handsome and I wished I still had the one thing that kept men like
-him at bay: my wedding ring. I smiled slightly and said "Sorry, I couldn't hear
-you. The music is quite loud."
-
-The man laughed and said "We could sit over there, it's a little quieter. Or I
-could just buy you a drink here." I stared at him for a moment and said "White
-wine would be nice." The man chuckled and ordered two drinks, a wine for me and
-a scotch for him. He sat down on the stool next to me and said "Well, you still
-haven't answered my question. What's a girl like you doing in a place like
-this?"
-
-"Oh, you really expected an answer? I thought it was just one of those openings
-men use on women. Like 'come here often?' or 'Did it hurt when you fell from
-heaven?'."
-
-The man laughed and said "Yes, I suppose it was something like that. Touche.
-No, it was a real question. You don't look like you're comfortable here, I saw
-you look around as if you were looking for someone. I just thought you might
-want some company while you were waiting, that's all."
-
-"You weren't wrong. I am looking for someone." I was amazed by how easy it was
-to talk to him, he had something about him that was disarming. "Look," I
-continued, "I can't do this. I am married and my husband is about to walk in.
-We're going through a rough patch and reliving the night we met was supposed to
-rekindle something. But it was a stupid idea. I just don't feel comfortable
-doing this. And I have no idea why I just told you that. I mean I don't know
-you at all."
-
-"Well, my name is Mike and I'm 35, not married, no kids. I have a good job, I'm
-a lawyer, and let me see what else can I tell you about me. Oh yes, I went to
-Yale after I graduated high school. My parents are Bill and Mary, they are
-still together and live out their retirement in Sunnyvale. My sister is
-married, has two kids and she owns a gym. Her husband also works there. Any
-questions?"
-
-I chuckled, shook my head and said "Iris, my name is Iris. Or at least for
-tonight it is."
-
-"So you want to know all about me and all I get is a fake name?"
-
-"Yes, for now that has to suffice. I am to scared to tell you who I really am,
-just not ready to go that far."
-
-"Okay, point taken. Iris it is." We talked for quite some time and I really
-started to like him, the fact he didn't push anything helped a lot with me
-feeling more comfortable in the whole situation. I laughed at his jokes, we
-just had a good time talking. From the corner of my eyes I caught a glimpse of
-Travis at the other end of the bar, he was looking at us with a slight smile on
-his face. Suddenly I realized I actually was acting out his fantasy. He was
-watching me being with another man, all of a sudden the whole situation changed
-for me. It could have been the wine talking but I noticed I was having fun just
-talking with this guy who I had just met. As soon as I realized that I felt my
-nipples harden, it became a little moist between my legs. I hadn't felt like
-that since the night I met Travis, I recognized the feelings I had.
-
-I glimpsed at Travis as I sipped from my wine seeing him making the smallest of
-nods as if to say 'Go on. Go for it.' I turned my attention to Mike again and
-started to flirt with him a little. The moment I felt his hand on my leg I
-panicked, said I had to go to the bathroom and walked away. Once inside I
-looked at myself in the mirror whispering "What are you doing? You can't do
-this, you're married for gods sake." But I had to admit the whole situation
-felt exhilarating, exciting and it had turned me on a little. There was just
-one thing: I couldn't do it. I had to stop.
-
-I took out my phone, ordered a cab and told Mike I had to go. Within minutes a
-man asked if anyone had called a taxi and I waved to him. Travis followed me
-with his eyes and I ignored him as we had agreed that we didn't know each other
-after all. After a 10 minute ride I got out at the hotel and walked inside. I
-had barely closed the door when Travis arrived.
-
-"What happened?" he asked and he sounded really concerned.
-
-"Nothing," I replied as I put my wedding ring back where it belonged. "It was
-just -- how do I say this? I'm afraid I had a little too much fun." I sat down
-on the bed, ready to cry. "I was having too much fun, Travis," I felt the tears
-well up, "I don't know why, but it did."
-
-He sat down next to me and said "You liked it? Did you really?"
-
-I nodded "Yes, he was saying all the right words. When he touched my knee I
-panicked and had to get out of there."
-
-He placed his hands in my cheeks, kissed me and said "So tell me, what could
-have happened if you hadn't panicked? Would you have danced with him? Maybe
-even kissed him?"
-
-I calmed down, saw the lust on his face and said "Maybe. Maybe even more."
-
-"Tell me."
-
-"Maybe I would have let him touch me." Travis moaned. "Maybe I might have
-allowed him to feel me." With every sentence Travis moaned louder. "Maybe we
-might have sat down in a dark spot where he would squeeze my boobs, feel them,
-take them out, suck on them. Maybe I would have touched him too."
-
-"Like this?" Travis enacted on all the cues I had given him and I fantasized
-about being with Mike.
-
-"Yes, like that. Maybe I would have had his lid in my hand, jerk him a little.
-Spread my legs for him as he has his fingers inside me. He made me so wet,
-Travis, I wanted him so bad." Travis undressed me and said "Tell me more, what
-would you have done with him?"
-
-"We would have ended up here. He takes off my dress, squeezes my boobs and I
-press my butt against his hard lid." I moaned softly as Travis did what I just
-had said. "Feeling his hard penis against my ass makes me so wet and he has his
-hands all over my naked body. Then I bend over, right there at the table.
-Spread my legs a little and offer myself to him."
-
-Travis moaned loud and got on top of me. "I grab his cock and guide him inside
-me," I whispered in his ear, "I am going to fuck him so hard, Travis, I want to
-fuck Mike. I want him so bad. I never thought I would say this, but I really
-wanted to fuck him." Travis started to pound me like he had never done before
-and every time I told him how I was being fucked by another man he moaned like
-I had never heard him before.
-
-"I am going to come so hard on his cock, Travis. So hard." as he was slamming
-me I felt an orgasm coming up. "Oh Mike, I'm coming Mike. I'm coming on your
-cock and my husband is watching me fuck you. Mike, come inside me Mike. I want
-your cum deep inside my pussy. Oh Mike, I'm coming, I'm COMING!" My whole body
-started to shake and shiver, my vision went black. I had the deepest orgasm I
-had ever had in my life, I planted my nails deep inside Travis' back. At the
-same time I felt him come too. He exploded deep inside me.
-
-We both needed quite some time to regain our breath, to return to this world
-again. My whole body still tingled and was so sensitive I could almost feel
-every threat in the sheets on our bed. When we both had returned we looked at
-each other, kissed and started over again.
-
-"Then I would have pushed him on this bed, got on top of him and made him fuck
-me all over again," I said, "I would ride him until he made me come again and
-again and again." We had sex a few times that night and every time I had sex
-with another guy we made up. Ever time Travis was sitting on a chair to watch
-me have sex with another man. The whole experience had lit a fire within me
-that I couldn't explain, but I couldn't deny it any longer. It was there and it
-had always been there, I had denied it for so long. Now it had come to the
-surface it was here to stay.
-
-## Chapter Two
-
+We had been married for almost five years now and like every marriage ours too
+had become stale and a runt. It just wasn't the same like when we first moved
+in together almost eight years ago. We both had demanding jobs, hardly were
+ever home together and acted more like room mates than husband and wife. That
+doesn't mean we didn't love each other anymore, it just was different. For me
+it had changed into the love I felt for my family, I still cared about him a
+lot, a whole lot, just not as I did eight years earlier.
+
+It was during one of those rare times we both were home when we both exploded,
+he did one of the things that irritated me so much. It was something stupid,
+something so small I can't even remember what it was anymore, but it was enough
+to make me angry. For the first time in our relationship we had a shouting
+fight, everything came out. We both felt the stress of our work, being in a
+not-so-living relationship and everything else. In the end I sat at our kitchen
+table, crying. Not because he had said painful things or something like that,
+it was more how helpless I felt.
+
+Travis sat down next to me. He took my hand and softly said "Look, I still love
+you. I still want to be with you and if you are willing to fight for this, then
+I am too. But we both need to want this, it can't just come from either one of
+us."
+
+I nodded, looked at him and for the first time in years I saw that boy, that
+man I had fallen for again. I had missed that caring, loving man so much and I
+wanted him back. "Maybe we should make some changes," I whispered, "maybe we
+need some help."
+
+Travis nodded and said "Maybe we do. I want to fight for this Laura, let's find
+someone who can help us."
+
+That evening I just had to call Marisha, she was my best friend since
+kindergarten and had been the maid of honor at our marriage. She knew me better
+than anyone, I had told her things I haven't even told Travis, if there was
+someone I trusted it was her. She listened to me for almost half an hour while
+I was sobbing on the phone. Then she said "If you want to fight for this, and I
+think you should, then I know someone you can see. I'm willing to call her for
+you if you want me too. Matt and I went through a rough patch too and we went
+to see her. She's so good at what she does."
+
+"Would you? Please, I am sure we won't make that call. Maybe if there's an
+appointment we both can make the time to go, otherwise we will just put it off
+for some reason or another."
+
+A few weeks later I sat down anxiously in the waiting room of Julie Miller, the
+counselor recommended by Marisha. I checked my watch to see what time it was,
+Travis had mere minutes to arrive, but I was sure that it would start later.
+Weren't all therapists or doctors like that? Mere seconds before it should have
+started Travis stormed in. "I am so sorry," he said, "there was a huge accident
+and I was stuck in traffic for almost twenty minutes. I tried to call you."
+
+I looked on my phone and saw all the missed calls from him. "I am so sorry. I
+turned off the sound." Travis just nodded and sat down next to me. I could see
+he was quite anxious too. I took his hand to reassure him, knowing how much he
+hated things like this and I was grateful he had even come.
+
+During that first session we mainly spoke about how we met, how we fell in love
+and what made us decide to want to spend the rest of our lives together. Julie
+skillfully exposed the feelings we still had for each other, by the time we
+left I saw our relationship in a different light. I could see now how much
+Travis still wanted to be with me and it hadn't been an easy session. Julie
+asked the hard questions, the questions I didn't dare to ask.
+
+"I think, and correct me if I'm wrong, but I think she's asking if there is
+anyone else." she plainly said with a face that didn't reveal any emotion.
+Maybe that's why it didn't offend Travis as it would have if I had been the one
+asking that question. Julie was neutral in this, just like she said when we
+started.
+
+Travis looked at her, then at me and with a slight tear in his eye he said "No!
+No! No, there isn't anyone else. I would never..." It was the way in which he
+said it, with indignation, he felt offended by that question. It was such a
+relieve to hear him say that, it had been on my mind for quite some time and I
+started seeing signs that weren't there. Even Marisha thought I was crazy for
+thinking that. "He would never," she said, "no, anybody but Travis. He has way
+too much honor and respect for you. I am so sure of it."
+
+We both felt deflated when we left that office, like a lot of tension between
+us had been released. "Let's go out for dinner," Travis said, "I think we've
+earned it." My heart jumped as it had been so long since we went to dinner
+together and I nodded profoundly. "Yes, let's do that," I replied with a smile
+on my face. I felt the first batch of butterflies in my stomach, just like a
+did when I first met him.
+
+"No Marisha," I shouted, "I hate sports ball and I am not going."
+
+"But it's the school football team, please. It's the state championship, please
+come. Do it for me, please? I don't want to go alone." It was the sad look on
+her face, her puppy eyes that persuaded me to go.
+
+"Okay, okay, I'll go. But I won't cheer." I huffed.
+
+Hours later we sat down in the stands and I was amazed by the number of people
+who were there. I never liked football, thought it was a game for idiots who
+liked hitting people. But Marisha's brother played in the team and she wanted
+to come see him play. A marching band was performing on the field, walking all
+kinds of figures as they played. At least something that I like, I thought.
+
+When the players came on the field Marisha jumped up and cheered loudly "GO
+TIGERS!". She even jumped up and down. When everybody sat down I noticed how
+close we were to then bench of _our_ team. One of the players turned around to
+see if he could see anyone he knew, when our eyes met I felt a jolt going
+through my body. We kept looking at each other for a while, it may have been
+mere seconds but it seemed like ages for me.
+
+Marisha had noticed and asked "Seen something you like?"
+
+I looked at her, bumped her shoulder and said "No, what makes you thing that?"
+
+"That look on your face," she laughed, "and the fact you're turning red when
+you lie." I giggled and turned away from her, she just knew me too well.
+
+After the game, which they lost by just a few points, Marisha wanted to wait
+for her brother. We stood near the changing rooms as player after player walked
+out. Everybody there told them it had been a good game and did their best to
+cheer them up. My heart skipped a beat when that boy walked out, I quickly
+turned around so he wouldn't see me.
+
+Then I heard Marisha shout "Liam! Liam! Over here." Her brother walked up to us
+and Marisha told him it had been a good game.
+
+"Yeah," Liam said, "It was tight. If we just had blocked that last pass. It it
+hadn't been for Travis here, it might have been a touch down."
+
+"Hi Travis," Marisha said, "Pleased to meet you. This is Laura." And she made
+me turn around to greet him. I was flustered, didn't know what to say but "Hi"
+
+"Hi," Travis responded, "I saw you in the stands, didn't I?"
+
+I just nodded, threw some imaginary daggers at Marisha and said "Yeah."
+
+Travis chuckled and about ten minutes later he walked me home. Marisha had very
+tactfully made sure that we would be alone for a while. During that walk I fell
+for him. Sure he was one of the football players, but he also was kind and into
+nerdy stuff like me. We had a lot in common as well as lot's of different
+interests. Just days later we kissed for the first time, the rest is history.
+
+When we arrived home we sat down on the back porch and just talked like we used
+to do. It had been such a long time since we just sat down to enjoy each others
+company. More butterflies rose up within me and I felt like I fell for him all
+over again. We had a lovely dinner together and agreed to do this more often.
+
+The next session we Julie we told her about it and she said "Why don't make it
+a regular thing? One day a week. The both of you clear your schedules and block
+it. No more work, no mare excuses. Just the two of you. Call it _date night_ or
+something. But you both have to tell everybody you cannot be bothered with
+anything work related."
+
+We both agreed and cleared our schedules, the first time possible was three
+weeks later as we both needed to finish some projects and go to appointments
+already made.
+
+The first time my assistant walked into my office and with a big smile she said
+"It's almost three. Date night" She chuckled when she left and I knew how much
+this amused her. Lori had said she thought it was a great idea when I told her
+about it. "I might even ask Dwayne to do the same," she said, "But I see him
+more often than you see Travis. Go, do it. I will make sure nobody bothers
+you."
+
+Just after three I collected my briefcase and purse to leave, when my boss came
+walking up to me. "Laura, before you go can you --"
+
+"Oh no," Lori interrupted, "It's date night and Laura has to leave. This can
+wait until tomorrow, can't it? Just give me it and I will make sure she looks
+at it first thing in the morning. Bye Laura, have a great night. See you
+tomorrow."
+
+Tom was flabbergasted by Lori's action, one of the reasons I liked her so much,
+she didn't really care who you were, she always looked out for my best
+interests. I just smiled, waved and walked out. As I walked away I could hear
+Tom grumble and resisted a laugh.
+
+I arrived home before Travis, or so I thought. There was a note on the kitchen
+table. "Hello my love, I didn't forget. Please get ready and meet me at
+_Dante's Kitchen_. Travis." Dante's Kitchen? How did he arrange that? It was
+only the best restaurant in the city and there was a waiting list.
+
+An hour later I arrived there, saw Travis standing outside wearing his best
+suit. He looked so smart. He complemented me on my looks and said "This is the
+best restaurant in town and well, I tried but we didn't get a seat. Sorry. So I
+thought of the next best thing." He took my hand and guided me to the back of
+the restaurant. On a field I saw a table and two chairs, with a candle in the
+middle. One of the waiters stood next to it and held the chair for me.
+
+"Welcome to _Dante's field_," the boy said, "We do not have a menu, but we have
+prepared a lovely dinner for two. Would madame like something to drink while we
+wait?" The food was delicious and this might have been the best dinner we ever
+went on. It was a nice Summers evening and it was just magical.
+
+When we walked back to our cars I asked "How? Just how?"
+
+"Oh," Travis laughed, "Dante owed me a favor and when I asked him he thought it
+was such a good idea. He might do it more often, in very special occasions." I
+chuckled, this was so typical for him. He always thought out of the box, which
+made him so good at his job. At that moment I hated we had gone there in our
+own cars, but we made up for it at home. We just sat down and talked again.
+
+"I've missed this so much," I said.
+
+"Me too," Travis replied, "it's nice to just relax and be with my best friend.
+Come to think of it, I might call him." I stumped his shoulder and he chuckled.
+
+We kept going on our date nights which became well known where we worked,
+people started to adjust to it and even said "Oh wait, that's Thursday
+afternoon. You can't make that. Let's find some other time." was something I
+started to hear more and more. Having this time together made us feel closer
+again and one day Travis surprised me with a long weekend to Malacau for our
+anniversary.
+
+We had wanted to go there for our honeymoon, but that didn't work out because
+we couldn't afford it. We went to Fort Dix in stead. And although it was a
+beautiful honeymoon, Fort Dix isn't the Caribbean by a long shot. "It's the
+honeymoon we always wanted," he said and I was smitten that he even remembered.
+
+We both cleared our schedules and were so excited to go. During the month we
+had to wait we couldn't stop talking about it. Travis even dusted off his
+camera, he had always loved photography but with his job he simply didn't have
+the time for it. I loved seeing that twinkle in his eyes again, that boyish
+enthusiasm in him. He even tested it by taking pictures of me which made me
+giggle.
+
+Finally it was time for us to go, we had spent a few days packing for it and
+were very excited when we got in the car to go to the airport. As we were
+driving Marisha called to wish us a nice trip. We checked in on time and spent
+some time shopping in the tax-free zone until it was time to board.
+
+Three hours later we landed on the island of our dreams. Rented a car and made
+our way to the cabin we had rented. It was a very beautiful cabin near the
+ocean. I hugged Travis saying "This is so beautiful, look at it. You can see
+the ocean!" I opened the doors to the back porch and stepped outside. The sun
+was high in the sky and it was very warm, the breeze coming from the ocean made
+it very pleasant if you staid in the shade.
+
+After we had unpacked I changed into a bikini, with a wrap around skirt. Travis
+had changed into shorts with a simple shirt. We sat down on the porch as I
+applied sun screen to my skin. "What are you doing?" Travis asked.
+
+"Do you really think I am not going in the water?" I said with a slight laugh.
+Travis raised his shoulders as if to say how could I be so stupid. When my skin
+was dry again I got up and stepped onto the hot white sand. "We need to get
+some flipflops or something." I complained and skipped to the wet sand as fast
+as possible. I could hear Travis laugh when he saw me jump like that.
+
+Feeling the cold ocean water on my feet was such a blessing and I turned around
+to wave to my husband who was taking pictures of me. I posed for a few of them
+and laughed. Without warning I took off my skirt, threw it on the sand and went
+for a swim. It felt so good, the water was great. I rose up, threw my head
+backwards so my hair would flip.
+
+"You look like a movie star!" I heard Travis shout. I giggled and got out,
+grabbed my skirt and skipped through the hot sand back to the cabin. "The water
+is so nice," I said as I walked up to our porch. I squeezed my hair over Travis
+who shouted "No" as I dried my hair.
+
+"We need to get some groceries," I said and went inside to change once more. It
+took us almost an hour to get to the closest store and smiled at the difference
+between this and the stores back home. The locals were very friendly and the
+woman behind the counter told us to visit _Kamalua Park_, the nature reserve
+just around a two hour drive from our cabin.
+
+That evening Travis prepared the fish we got on the grill outside. He loved
+cooking and said "Oh, I've missed this. Maybe I should do it more at home."
+
+"I would love that," I replied, "Every day I don't have to is a win for me."
+
+After that dinner we sat outside for a long time, both of us with a glass of
+wine in our hands. Watching him in the dimmed light coming from inside made him
+so handsome and I couldn't resist to kiss him. That kiss turned into more
+kissing after which Travis took the glass from me and placed it on the table.
+He put his arms around me and we started to make love. I got on top of him,
+smiled and unzipped his shorts, slipped my panties to the side and pressed his
+half hard lid against my vulva. I stared into his eyes, rose up a little and
+guided him inside me.
+
+He slowly pulled down the straps of my dress, exposing my breasts. He kissed my
+nipples sending shock waves through my body. I slowly moved my hips, feeling
+his hard lid inside me. We kissed and I gyrated my hips, started to bounce and
+moan softly. From the corner of my eyes I saw a dark shadow standing a few
+yards from us. Someone was watching us. In stead of being startled, it excited
+me. I leaned back which made the light fall on my breasts, I wanted the person
+watching to see me.
+
+Bouncing harder and faster made my breasts bounce even more. I moaned louder
+and panted "Oh yes, yes. Fuck me." not really knowing if the one watching could
+hear me. It didn't take me long to have an orgasm, when I looked to see if we
+were still being watched the shadow was gone and I really thought I might have
+imagined it all.
+
+Travis put his arms around me when he had finished too, unloading his cum all
+over his belly. "What came over you?" he asked, "not that I'm complaining, but
+it wasn't like any other time."
+
+"It's the island," I smiled, "I think it's the island." I didn't want to tell
+him what I had seen as I knew it would make him angry. I got up, pulled my
+dress up and went inside to go the restroom. As I walked inside I thought about
+that shadow, did someone really watch us? And why didn't I just run inside? I
+couldn't believe how much it had excited me to know I was being watched. Just
+thinking about that moment excited me all over again.
+
+The next day we went to the park that woman had suggested to us and she had
+been right, it was beautiful. We stopped at a large waterfall and Travis took
+some pictures of it and me standing in front of the falling water. It was like
+we rediscovered our younger selves again, the people we were before we got all
+caught up in work and the daily grind of being a responsible adult. We had fun
+again, enjoyed teasing each other and basically had a good time.
+
+On our way back to the cabin we stopped to get some more wine as we had decided
+to stay at the cabin for the rest of the day. Right after we got there I
+changed into my bikini, grabbed a blanket and went out on the beach. Travis
+stayed behind to prepare dinner while I laid down to catch same late afternoon
+sun. I was smearing sun block on my legs when I saw a man walking down the
+beach. With a shock I recognized the silhouette, it was the one who had been
+watching us last night. I was sure of it.
+
+The man tipped his hat as he passed me by having this look on his face, a look
+of recognition. I felt the butterflies rise up in my stomach, a tingling I just
+couldn't quite place. I just kept staring at him as he slowly approached me,
+still keeping a distance but close enough so I could hear him.
+
+"That was quite the performance last night," he said with a slight smirk on his
+face. I should have been angry or appalled, in stead I felt thrilled, flattered
+and even more excited. I looked over my shoulder to see Travis was still
+inside, I turned towards the stranger and said "Did you like what you saw?"
+
+The man nodded slightly. "I liked what I saw," he said, "just a warning. It
+isn't quite legal here, but I didn't report it." He looked over and smiled. I
+blushed because of the way he made me feel. I lifted my head to look at him, we
+didn't speak for a moment or two.
+
+"Well," I softly said, "Maybe you would like a second peek?" With that I pulled
+down my bikini, exposing my breasts to this stranger. His eyes opened up wide
+and he shifted his stance a little. I giggled when I saw the bulge in his pants
+grow. I covered myself again and said "Come by later. We might give another
+show." I winked at him and laid down, the man stood there for a moment then
+walked away. I chuckled softly, feeling good about myself. It was flattering to
+know I was still attractive to men.
+
+It was almost 10 in the evening and we sat on the porch overlooking the ocean,
+it was remarkably calm that night. All this time I kept looking for that shadow
+again, feeling a little disappointed not seeing it. Without any warning he was
+there at the same spot as the night before, my heart started beating faster and
+I leaned over to my husband to kiss him. As I did I took his penis out and
+started sucking it. "What's this?" Travis asked totally surprised by my sudden
+action.
+
+I didn't respond, I kept sucking his cock. I got up, took a few steps towards
+the railing closer to the man watching us. As I did I took off my dress and
+winked for Travis to come closer. I lifted myself on the table near the fence,
+spread my legs and whispered "Come fuck me." Travis got up quickly, undressed
+too and pushed his hard cock deep inside me. I moaned as I felt him enter,
+leaned backwards and saw the man standing there in the dim light.
+
+I winked for him to come closer and moaned harder when the man softly touched
+my breasts. I looked up at Travis who was very surprised to see that stranger
+touching his wife, but in stead of getting angry he seemed to enjoy it. I felt
+his hard cock getting harder inside me. I smiled at him, leaned my head
+backwards and took out this strangers cock. After licking it a few times I took
+it in my mouth, something that really seemed to excite Travis. I loved feeling
+two cocks inside me and came so hard.
+
+It didn't take Travis long to come seeing his wife suck a strangers cock. He
+came all over my belly, but I needed more. I turned around, rested my ass on
+the wooden railing, spread my legs and guided this stranger inside me. Feeling
+this strange cock slide in to me, made me moan so hard. "Oh yes, fuck me" I
+almost shouted, "fuck me hard." Travis smiled, kissed my nipples and I saw him
+grow again.
+
+The stranger fucked me so hard I came multiple times and when it was his time
+to come, I closed my legs behind him, pulled him in closer and shouted "No,
+don't pull out. Fill me up, come inside my pussy!" With a deep groan the
+stranger exploded, sending his seed deep inside my fertile womb. I hadn't been
+on birth control for months as we had decided to try to get pregnant. Travis
+was startled at first when I told the man to send his seed inside me, but when
+he saw how I orgasmed he smiled.
+
+When the stranger pulled out, Travis turned me around and planted his hard cock
+inside me once again. With just a few thrusts he put his seed inside me too.
+Knowing I had the seed of two men inside me send me over the top once again.
+When it all was over Travis said to the man "Well, now you've enjoyed my wife
+you can just as well get something to drink. Come on, what's you name my
+friend?"
+
+"It's Thomas," the man said and he stepped onto our porch. I went inside to
+clean myself a little and returned wearing a very loose summer dress. We talked
+for a while and learned that Thomas lived a few cabins down from us. He was a
+gentle man and he made us laugh a couple of times. All of a sudden I felt an
+urge I couldn't resist. I got up, straddled Thomas and guided him inside me
+once again. I took of my dress as I was gyrating my hips on his big black cock,
+Travis moved in closer and sucked my breasts.
+
+I moaned so hard, then whispered in Travis' ears. "I want you in my ass. Fuck
+my ass, please. I always wanted to know what it feels like." I didn't have to
+say that twice and after a few tries I felt Travis slide inside my ass.
+Instantly I came feeling those two hard cocks inside me. "Oh yes, fuck me
+hard," I panted, "Hurt me, I want it. Harder. Harder. Harder!"
+
+I had the biggest orgasm I had ever felt in my life, and came all over again
+when the two men almost came at the same time. One sending his cum up my ass,
+the other up my fertile womb. We had a night full of sex and they double
+penetrated me multiple times. I loved every second of it, I loved being the
+slut for those two men. By the time it got light I was exhausted, but very
+satisfied. My pussy was filled with both their cum and I felt it dripping out
+of me.
+
+Thomas excused himself as he really had to go, leaving me behind laying in the
+loving arms of my husband. We both knew this wouldn't be the last time
+something like this would happen and even more knowing he allowed me to do this
+made me love him even more.
+
+## Chapter Two.
