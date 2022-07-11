@@ -1105,3 +1105,282 @@ have to mean something. And when you said yes, I was and still am the luckiest
 man alive. Because I get to spend my life with you."
 
 I hugged him and whispered "Guess who is getting to be lucky right now."
+
+## Chapter Four
+We stayed for another week before Travis had to be back. We spent those days
+exploring the island. We went to see a volcano, walked a trail through the
+beautiful nature on the island and much much more.
+
+The last day Travis wanted to go fishing once more and I wanted to treat myself
+at the spa. We had agreed to go to a nice restaurant that evening to close a
+wonderful vacation before we both had to get to work. Me on the photos and
+Travis was due in court. They really pampered me that day, I had a facial, a
+massage, had my nails and hair done. I felt like a million buck when I left that
+space.
+
+As I still had some hours to kill I decided to spent them pool side and catch
+some sun. As I walked towards it I bought some sun screen at the shop and found
+myself a nice chair to lay on. As I was smearing the lotion on my legs I
+noticed a man watching me, he didn't even hide it. At first it felt
+uncomfortable, but then the words Travis had said popped up in my head "You
+liked it and you didn't even realize it."
+
+I acted like I hadn't noticed and kept on applying the sun screen. I made sure
+he could see how I applied it to the base of my breasts and my belly. I raised
+up my sunglasses and laid down in the sun, bending on knee slightly. I must
+have laid there for twenty minutes before I heard a male voice next to me say
+"Don't you want someone to take care of your back?"
+
+I opened my eyes and lowered my glasses. The man that had been watching me was
+standing over me. I felt a slight panic come over me and wanted to say it was
+alright, that I didn't need him to, but instead I said "That would be lovely,
+thank you." He knelt down, grabbed the bottle and I turned over on my stomach.
+
+He poured the lotion on my back, it felt cold at first but I liked hit. My
+heart started racing when he touched me, rubbing in the lotion. First just my
+back, then my lower back, stopping short of my pelvis. Then he went back up
+again, making sure he got all of my back and my neck and shoulders.
+
+He poured some more lotion on my back and started rubbing it in again, this
+time he went underneath the strap of my top and further to the side, just
+missing my boobs. Every time he got close to them I bit my lip a little. This
+must have me bolstered him, because the next time he went a little farther.
+"Let me loosen this," he said as he untied the knot on my back. Before I
+realized the traps were laying on the chair next to me. He poured some more
+lotion and this time he touched the base of my breasts, softly squeezing them.
+He slowly went down again, rubbing the sides of my hips. As he went up again I
+bit my lip and just as he was about to touch my breasts I lifted my torso a
+little so he could get underneath me. He cupped my breasts and squeezed them. I
+could help but moan softly.
+
+Suddenly I realized what was happening, I tied up my top again and with a red
+heat I thanked him. Collected all my things and rushed to our cabin. I closed
+all the doors and fell onto our bed. A few minutes later Travis walked in.
+"What's wrong?" he asked when he saw me.
+
+"Nothing." I replied.
+
+"No, something's up. So tell me."
+
+"I don't know how."
+
+"Was it because that man was rubbing you with lotion?"
+
+"How -- what? -- How?"
+
+"I saw you two. I came back and you weren't here. The spa had already closed so
+I tried the pool and there you were. Talking to that guy. Before I realized
+what was happening I saw you turn over and he knelt down. So I sat down at the
+bar, ordered a cocktail and started to watch. I could see from far away that
+you enjoyed it. Especially when he touched your breasts."
+
+"You saw all of that?"
+
+"Oh yes," Travis smiled.
+
+"And you aren't angry?"
+
+"Why should I? I have a wife who still has it. Men are still very attracted to
+you. I'm not the jealous type, never have been. I know that in the end you will
+come back to me, sleep in my bed and make love to me. The rest is just
+satisfying needs and if you need this, who am I to deny you that?"
+
+"But we are married," I protested.
+
+"So? If we both agree to this, it isn't cheating anymore, is it? Just as long
+as we both are honest and open about it."
+
+"Wait? Both? You want to be with other women?"
+
+"No, but I wouldn't say no to see you have a good time. Even if it isn't with
+me."
+
+"Wait? No. What?"
+
+"You heard me," Travis said with a slight smile, "It's not that I didn't tell
+you this earlier. The whole bar fiasco was about this, remember?"
+
+"Oh yes, how could I forget. But I'm like that. I love you and you alone."
+
+"That's so nice to hear. But as I said, that part isn't about love. It is about
+satisfying needs. Look me in the eyes and tell me that you didn't enjoy him
+touching you. Come one I dare you."
+
+I looked him straight in the eyes and so much wanted to say that I didn't. "I
+can't," I said as I looked away, "that would be a lie."
+
+"Exactly! You like the attention you get, you liked that stranger touching you
+and you still have a fantasy about being with another man. I know you, Laura.
+You can't hide it from me. I can see the extra bounce in your step, I can see
+that you enjoy being stared at. You are only pretending that you don't because
+that is the way you were raised. And I love that about you, but I also want you
+to enjoy yourself. For you to be happy. And I am willing to give you the space
+you need to explore your sexuality, to see how far you are willing to go."
+
+"I don't know. It's so wrong, I am married to you! I chose you!"
+
+"Yes, and I chose you. That will never ever change. This is me showing how much
+I love you, that I am willing to give you the room to explore. This is my
+ultimate show of trust that despite everything you will return to me, be at my
+side, be mine. I am just willing to share so you can get everything you need."
+
+I hugged and kissed him, I just didn't know what to say. It was time to get
+ready for dinner and I stepped into the shower. While the water was falling on
+me I could feel these hands touching me again. "Oh yes, touch my breasts," I
+whispered, "squeeze them. Pinch my nipples." For the first time in months I
+started masturbating to that fantasy.
+
+When we sat down for dinner, I could see that man sitting at the other table. I
+chose to sit down across from him. Travis chuckled softly and sat down next to
+me so not to block his view of me. I bit my lip softly and as I turned to
+Travis our gazes crossed. "He's sitting right there," I whispered.
+
+Travis chuckled "I know, you wanted to sit somewhere else and suddenly you
+chose that chair. There had to be a reason and then I noticed him to. Why do
+you think I sat down here?"
+
+All during dinner I couldn't stop glancing over, it was exciting and scary at
+the same time. Here I was sitting in a nice restaurant with my husband while I
+was flirting with a stranger at another table. Instead of stopping me it was
+like Travis was encouraging me to take a little step further every time. Before
+I knew it I bit my nails as I was looking at that man, with the other hand I
+caressed my boob with the top of my fingers.
+
+The man was sitting alone at a table for two with his back against the wall. We
+were sitting at the table next to his. My back was towards the rest of the
+restaurant, all they could see was my back. This little game we played was just
+between that stranger and me, much to the enjoyment of Travis. Every time I
+looked at him he gestured to look at that stranger.
+
+Just before desert I excused myself because I had to go to the bathroom. I
+stepped into the booth and asked myself what the hell I was doing? I stared at
+myself as I was washing my hands. I redid my lipstick, touched up my eye
+shadow. Just before I left I did something I never thought I would do. I pulled
+down my thong and put it in my purse. Walking back inside the restaurant,
+knowing full well I was completely naked underneath that dress, really excited
+me.
+
+This time I sat down across from Travis, that man was now seated to my left. I
+leaned a bit back and arced my back. I turned my head towards him, then the
+rest of my body. As I spread my legs my skirt crawled upwards. The man looked
+down and smiled. I knew he could see my pussy, sitting there like that exposing
+myself to a stranger while my husband was sitting across from me at the table
+excited me.
+
+We ordered a nice desert and just before we left I walked passed that man
+handing him a note with our cabin number. I looked into his eyes and bit my lip
+again. As we slowly made our way back I felt like that man was following us, I
+slowed down a little and Travis kept on walking. I slowed down a little more
+until that man was right behind me. When he put his arm around my waist I
+turned my head towards him and bit my lip.
+
+Travis opened the door to our cabin, sat down on a chair across the room. I
+walked in first, turned around and that man walked in behind me. He closed the
+door, put his arms around me and we kissed. I was cautious at first, but after
+one look at Travis I let go. I opened my mouth and felt his tongue touch mine.
+Slowly he unzipped my dress as I pressed my body against his.
+
+I felt myself getting wet, taking a step back as he peeled that tight dress off
+off me. There I was standing fully naked in front of a man who's name I didn't
+even know and I didn't even care. I pulled up his shirt, revealing his muscular
+torso underneath, I softly touched his six pack and kissed him again. My hands
+slowly went down until I touched the bulge in his pants. His hands went all
+over my body and I moaned loudly.
+
+He started kissing my breasts, biting my nipples and sucking them. I turned
+towards Travis and saw he had taken out his cock and playing with it. I went
+down on the man, opened up his pants and pulled them down. A massive penis was
+straight in my face, I gasped when I saw how big it was. I looked at Travis as
+I carefully took in in my hand. I pushed it against my cheek, my lips and
+kissed the crown. Softly I licked it. And I did it all so Travis could see.
+Then I opened my mouth and took it in. I was sucking a strangers cock right in
+front of my husband. I sucked it softly at first, circling my tongue around his
+pole. After a few minutes I took it in as deep as it would go, gagging on it.
+He placed his hands on my head and pushed it even deeper. I could feel him
+going all the way down my throat, my nose was touching he belly, his balls
+slapping against my chin.
+
+I gagged once or twice before he pulled out and I could take a deep breath. I
+giggled and took his cock deep once again. He pushed it all the way down again
+and I loved it. Then he lifted me up, laid me down on the bed and I waved for
+Travis to come closer. He took my hand and I stared him in the eyes. "Are you
+sure?" I whimpered. He just nodded and whispered "Have fun."
+
+I looked at the man, spread my legs and felt his crown against my vulva. I
+looked up at Travis again and moaned as he slowly pushed his dick inside me.
+"Oh my God, he's fucking me," I panted, "he's actually fucking me. He goes so
+deep, Oh my God, that's deep." Travis just smiled, looked up and said "Fuck her
+good, she's earned it."
+
+Travis stepped away and I put my arms around this stranger. "Oh yes," I panted,
+"Yes, yes, fuck me." He started to pump and with every thrust I moaned. It felt
+so good, I forgot all about Travis watching us, there was just me and this guy
+inside me. He started pounding me, all I could do was to tell him to go faster
+and harder. I wanted him to hurt me.
+
+After a while he laid down and I got on top of him, my face towards Travis. I
+looked straight into my husbands eyes as I felt this strangers cock slide into
+me again. I started to bounce, making my boobs dance and panted "This feels so
+good. I love this cock. It's bigger than yours, he's really stretching me out."
+I watched how Travis started to jerk off. "Oh yes, jerk that tiny cock of yours
+and watch how your wife is fucking a real man with a real dick. See how your
+wife will come all over this big dick."
+
+I turned around and faced that man again. I arced my back so he could suck on
+my boobs. I moved my hips as fast as I could. "Oh yes, yes, almost there. Bite
+my nipples, make them hurt. Oh yes, just like that. Bite them harder, harder Oh
+yes, just like that. Make them hurt, make them bleed. Oh yes, I'm coming. I'm
+coming all over that big dick. Oh yes yes yes YEEEEEESSSSS!" I sagged down
+after the orgasm, the combination of the sharp pain from my boobs and the
+pleasure from my pussy had made me come like I never had before.
+
+I kissed him again, pressing my open mouth firmly against his, his cock was
+twisting and throbbing inside me. I had lost all control over myself and
+gyrated my hips while my vagina walls contracted firmly around that strange
+cock inside me. I got off him and told him "Now fuck me until you come. I want
+you to come deep inside me, I want to feel your cum enter my body. I'm not on
+birth-control, but I don't care anymore. I want you to fill me up, make me
+pregnant like that loser can't."
+
+The man got on top of me, pushed his rod inside me once more and started
+pounding me. I came all over again and again. Then I felt him throb and twitch
+harder, his breathing got heavier and with a loud groan he exploded deep inside
+my pussy. I felt his cum entering me, I was just so sensitive. When he was
+finally done he sagged down on top of me and I put my arms around him. "Thank
+you," I whispered.
+
+We laid there for a few minutes before he rolled off off me. We kissed some
+more and within minutes he got hard all over again as I was playing with his
+cock. I got up and walked towards Travis, sat down on the table and winked the
+man over to me. As he got closer I spread my legs and guided that cock inside
+me all over again. We had sex multiple times that night, even once outside the
+cabin. He came all over me body multiple times after he had filled my vagina
+with his cum.
+
+When the sun started rising he got dressed, thanked me and left. I turned to
+Travis and said "Come make love to me. I need to feel some love." Travis
+pounded me like he had never done before, it was like an animal unleashed. I
+came multiple times as he was pounding me, unloading all his cum inside my
+pussy. Knowing it was mixing with the seed of a total stranger I cam once more
+and had the biggest orgasm I had ever felt.
+
+We fell asleep and a few hours later we woke up when it became to warm to be in
+bed. Travis kissed me like he never had kissed me before. "Are you really not
+on birth-control?"
+
+I giggled and said "Of course I am. I just wanted him the think I wasn't. I
+wanted to humiliate you, somehow that was what got me off. My nipples still
+hurt, but it felt so good, the combination between pain and pleasure. I can't
+explain."
+
+"You were magnificent. I was so good to see you enjoy yourself. To see you
+fully satisfied. I loved every second of it."
+
+"Me too. Come lets take a shower and I'll show you how I sucked him."
+
+We packed a few hours later. Went to the airport and flew home. I felt like a
+new woman as I sat there in the plane, feeling this strangers seed still seep
+out of me. I felt reborn, totally satisfied and I knew this wouldn't be the
+last time.
+
+## Chapter Five
