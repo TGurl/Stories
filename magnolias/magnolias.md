@@ -1384,4 +1384,821 @@ out of me. I felt reborn, totally satisfied and I knew this wouldn't be the
 last time.
 
 ## Chapter Five
+Having my first period after that week in Hawaii was such a relief, but somehow
+it felt exciting too. Just the thought I might have gotten pregnant from that
+one encounter was an adrenaline rush that lasted multiple days. Of course I
+knew the chance was low because I was on birth control, but still there was a
+small chance and the thought of being impregnated by someone who's name I
+didn't even know was somehow exhilarating.
 
+During the nights I laid in bed alone as Travis was working late, I fantasized
+about stop taking the pill and being with another man without any protection.
+Even though I never acted upon it I still felt guilty afterwards, so guilty
+that I sometimes cried.
+
+Over time we got back in the daily groove. Travis did what he said he would do
+and slowed down as he took less cases. The cases he did take were bigger
+though, overall he could work less hours. "It's strange," he said, "Now that I
+work less hours, somehow I still get more done."
+
+"I guess it's because you're more rested and therefor can concentrate better,"
+I replied, "I mean it seems logical to me."
+
+"That might be it, any way I like it."
+
+I did some odd jobs like weddings and even a funeral, something I never want to
+do again. I went for a few hikes, took some more landscape photos and sold some
+of the via the website. But overall the jobs all but dried up and I was at home
+most of the time, getting rather bored.
+
+"I just got a big case," Travis said, "and I might be working late on this
+one."
+
+"But you promised to slow down..."
+
+"Yes, but I can't not do this one. This woman is innocent, the jury was hung
+during her trial. Still the judge sentenced her to 20 years. God, it's even on
+video that she had nothing to do with what happened, she was an innocent
+bystander who got caught up in something. She even tried to run away. If I
+don't do this one she has to get another public defender and they are so
+overworked. I going to do this one pro bono, I just have to."
+
+I smiled at him, again he let his big heart speak and I loved him for it. How
+could I deny him that? "I will just try and do something," I replied, "You go
+and be the knight in shining armor for her and win this." He hugged me,
+whispering how much he loved me.
+
+During the first week he still came home in the evenings, but the closer the
+trial was the more time he spent in his office. From the very early morning to
+late at night he worked on this case. At first I just stayed at home, got bored
+of it really fast and went online to see if there was anything that I could be
+doing.
+
+I went exploring the city some more, all I had seen up until then was my
+immediate neighborhood and some blocks next to it. For the rest the only thing
+I had seen was whatever was visible from the freeway. Driving around was very
+interesting as Fort Dix is the biggest city in the country, you could drive for
+hours and still be in it.
+
+The first day I drove to the east and it was nice to see the buildings, the
+zoning change from the European style I was now so used to, to style used all
+over the country. After drying for two hours I parked near a Dollar Store, I
+had no clue where I was as I had been driving without my GPS, I just turned
+left or right whenever I felt like it.
+
+I went inside the Dollar Store to get myself something to drink and some
+snacks. I grabbed a basket and started browsing the store. In the back of the
+store they even sold some clothes and I browsed them for a while. On one of the
+racks they sold on-size-fits-all dresses for just five dollars each. I grabbed
+on of each, even one called a tube dress, a dress without straps.
+
+At some point I passed the shoe section and saw the high heels were on sale,
+from 15 for only 5 dollars. I couldn't leave the shoes in my size in the store
+and I didn't have many heels and for this kind of money? At the makeup section
+I filled my basked even more. When I had to pay I was amazed by how little it
+was and promised myself I would be back here someday.
+
+Back in the car I turned on my GPS and stored the location under *cheap ass
+store*. I opened a bottle of water and just sat there for a minute looking at
+the people coming in and going out. My attention was drawn to one girl passing
+by, she was just beautiful. What I did notice was her breasts, they were just
+too big and couldn't have been all natural. That being said they looked so nice
+on her.
+
+I couldn't help but look down at the pair I had, not that they were small but
+they could have been bigger. I had never been that happy with my B-cup breasts,
+but never thought about doing something about enlarging them. I decided to look
+into that someday.
+
+When I got back home again I tried on the dresses I had bought, combining them
+with the new heels. Looking at myself in the mirror I liked what I saw. "If I
+had bigger mamas it would look even better," I thought and tried to imagine
+myself with bigger breasts. After I had put on that tube dress I decided to
+keep it on as it felt so comfortable. The clacking of my heals on our hard
+wooden floor excited me.
+
+I pretended to be in a bar, chatting with all kinds of people. "You want to
+touch them?" I said out loud, "You can if you want to. Ah, don't mind him, he's
+just my husband. He loves to see me like this. What? Sure, you can lick them.
+Oh yes, sucking them is even better. See that Travis? This nice black man is
+sucking your wife's breasts."
+
+I blushed and giggled a little. In the kitchen I made myself a cup of coffee
+and sat down on our balcony as the weather was so nice. As I sat there, feeling
+the sun on my skin, something came over me. I checked the nearest balconies and
+when I saw they were empty I pulled down the top of my dress. Sitting there
+topless felt so good, hearing the people down on the street knowing they could
+see me if they looked up was very exciting. It only lasted for a minute or two,
+I giggled and covered myself again.
+
+I wondered what had come over me, this wasn't how I was raised. I was a good
+Catholic girl when I was young and now? Now I had slept with a man who's name I
+didn't even know and my husband had watched me do it. How had I become so
+corrupted? And was it really that wrong when I had liked doing it? Was my
+mother right, had I stepped onto that slope going down? I had to stop thinking
+like this.
+
+To stop the thoughts I turned on the TV, the anchor of the news was talking
+about something boring and I wasn't really paying attention to it. Not until I
+heard "Union Street clean up has started this morning at 6AM. In a surprise
+raid 30 women were picked up for soliciting sex. During the raid three
+potential clients were arrested too. The locals had been complaining about
+street prostitution for years and now authorities have taken action."
+
+I turned around and saw police officers round up dozens of girls, my heart
+stopped when I saw that girl from the parking lot the other day. I recognized
+her immediately, her head was bowed down but her chest area made me sure it was
+the same girl.
+
+The reporter continued "Concerned residents are now saying that they are afraid
+the disturbance will simply move to another street. 'That what happened last
+time' a woman interviewed said, 'and it got worse. These girls have to make
+money somehow and they will just go somewhere else.'" I knew in my gut she was
+right, this wasn't a solution. These girls needed help to get out of that
+lifestyle, they needed someone to speak for them. I also knew it couldn't be
+me, they needed someone with the same skin color to speak for them, to empower
+them.
+
+I went online to read more about it. Union Street was near the Dollar Store I
+had visited the other day, just a few blocks separated them. On Google Maps I
+saw that it was a desolate place, lot's of condemned houses and just very few
+street lights. I couldn't imagine myself walking those streets at night, let
+alone *work* them.
+
+That evening I got in my car and drove back to that neighborhood. My heart was
+racing all the time as it wasn't particularly safe. I drove along Union Street
+and it was as scary as I imagined. I just kept on driving, hoping no one would
+see that there was a woman behind the wheel. I turned left at the end of the
+street and it was even more desolate there. As quick as I could I took another
+right into a street with more lights, more buildings, less desolate.
+
+To my surprise I saw two or three girls walking up and down the street. Their
+appearance made clear to me why the were there. I parked my car such that I
+could watch them through the windshield of my car. I was in a dark spot just to
+make sure they couldn't see me. Just sitting there already was very exciting, I
+kept looking over my shoulders to see if anyone was approaching my car.
+
+After a few minutes a car turned onto the street, passing the girls slowly,
+took a right turn and disappeared. A few minutes later there it was again. This
+time he stopped near one of the girls, who walked up to it, bend over and it
+seemed they talked for a while. Then she got into the car and they drove off.
+
+I resisted the urge to follow them, it was simply none of my business. I did
+hope she would be safe, but that was all I could do. A van stopped on that
+street and a group of girls got out of the back. As soon as the back doors
+closed the van drive off and the girls stepped up on the sidewalk. Not there
+were 12 or 13 of them walking up and down that sidewalk. All dressed for the
+occasion, showing of their *wares*.
+
+More and more cars passed them, some even stopped and girls got into them. One
+after the other got in and drove off. After about 10 minutes the first care
+came back and the girl stepped out. Before she could even close the door the
+car sped off, I could see her flipping him off for that. "You show him, girl" I
+thought.
+
+I kept watching them for a few more minutes before I felt to unsafe. I started
+the car and drove away. The whole time back to the apartment I kept thinking of
+these girls. What made them do this? How would it feel to be on that sidewalk?
+Was it strange for me wanting to try it? Just to see how it would feel. "No
+Laura," I scolded myself, "You can't think this way. What they are doing is
+wrong and against the law."
+
+For the next couple of days I couldn't stop thinking about what I had seen. I
+wanted to talk to them, understand why they were doing this. Were they forced?
+Did they choose this life? Did some of them even enjoy it? So many questions.
+"It could be a nice project," I thought, "Maybe even some photos. Not to
+embarrass them or judge them, but show the human side of it. To show the world
+these girls where human too, with problems and insecurities."
+
+I fully well understood it to be very dangerous and I could be arrested for
+solicitation, even though I wouldn't be there for it. I decided to talk to the
+police first, to let them know I was planning to do this. Just so they could
+have a record of me telling them why I would be there.
+
+The next day I went to the police department and asked if I could talk to
+someone higher up. "Why do you want to talk to our lieutenant?" the officer
+asked. "That will be between the lieutenant and me," I replied, "And according
+to your statues, article 12, subsection b you can't deny my request and I don't
+have to explain my reasons to you."
+
+"Ah, you are one of those."
+
+"One of who?"
+
+"Auditors, sovereign citizens, you pick one."
+
+"No, I am not. My husband is a lawyer and I just looked it up. As your statues
+are available on your website." I replied.
+
+"Sure, and who is your husband?"
+
+"Travis Willingham, you might know him."
+
+"Willingham, you mean that guy who just got our suspect released? That
+Willingham?"
+
+"I am sure he had his reasons," I replied, "And yes that Willingham."
+
+"I will be right back, please wait here."
+
+I sat down on one of the chairs in the lobby. I wasn't doing anything out of
+the ordinary. The officer returned and said "Sorry ma'am, but you will have to
+come with me."
+
+"What for?"
+
+"You are under arrest."
+
+"Under arrest? For what?"
+
+"I believe you are under the influence of alcohol and I saw you drive up. So we
+would like to do a sobriety test."
+
+"Not without my lawyer" I got my phone out of my purse and the officer just
+grabbed it from me.
+
+"No phone calls. You are under arrest, ma'am," he replied. "Please come with
+me."
+
+"Give me back my phone," I said sternly, "You can't ask me questions as I've
+asked for my lawyer."
+
+"This phone is confiscated, ma'am. Standard police procedure."
+
+"This is ridiculous. Are you going to get me my lawyer? His phone number is in
+my phone, under husband."
+
+"I can't do that ma'am, not without a warrant."
+
+"So you admit there is no warrant. Well, I will not say another word until my
+lawyer gets here."
+
+"That's your right, ma'am. Now please come with me or I will use force to move
+you."
+
+I just looked at him, said nothing. He then grabbed me, pushed me against the
+wall and handcuffed me. I was placed into a small room and thrown onto a chair.
+He left locking the door behind him. After I don't know how long another
+officer walked in. She sat down across from me and started the interrogation.
+
+"What is your name, ma'am?"
+
+"Lawyer. L A W Y E R."
+
+"What is your name?"
+
+"Lawyer."
+
+"If you don't coopporate this will only last longer. That's on you then. Again
+what is your name?"
+
+"Lawyer."
+
+She got up and just before she closed the door I heard her say "She's not going
+to break --". This was retaliation, I thought. Nothing but retaliation, but
+there was nothing they could have against me. I was arrested for being under
+the influence but they didn't run any tests. Travis had taught me well and I
+didn't say anything but "Lawyer, I want my lawyer."
+
+I must have been there for a few hours when the door swung open and a very
+angry Travis Willingham stormed in. "You arrested my wife? On what grounds? How
+long is she here? I'm her lawyer and her husband, that makes me double legible
+to see her. To see if she's alright. What? The sue me. See if you will win that
+case. And can someone please take off these cuffs? If these cuffs aren't off
+her in the next 15 seconds I will sue this department, you can be sure of that?
+And if you didn't realize, I usually win my cases."
+
+He turned to me and said "Are you alright?"
+
+"Could be better."
+
+A woman in a white uniform walked in. "What the hell did you people do? And why
+wasn't I informed. Release this woman immediately! I will get to the bottom of
+this. We don't do this anymore! This practice has been banned and you are all
+on report! Every single one of you. I don't want to hear it, get out of my
+sight."
+
+When she turned to me her face went soft and warm. "I am so sorry, ma'am. I was
+not informed you were here. These men did not follow procedure and any
+litigation that follows will be your full right to do so."
+
+"Oh you can be sure of that."
+
+After she had removed the cuffs, I rubbed my wrists and said to Travis "No, let
+it go. I don't want to cause any problems."
+
+"That's nice to hear," the officer said, "Lieutenant Ball, at your service
+ma'am."
+
+"Nice to meet you, officer Ball. As I said I am not here to cause any problems.
+I just wanted to talk to you, but I am afraid that your officers will retaliate
+because of this."
+
+"Oh, I will make sure you are not to be touched. And if they do they better
+have a damn good reason and hard evidence against you."
+
+"That's fair," I replied.
+
+"Why were you here?" Travis asked.
+
+"Are those camera's recording?" I asked.
+
+"They better be," officer Ball said, "let me check." She went out the room and
+returned a few minutes later. "Now that was quite the coincidence, somehow it
+stopped recording about four hours ago. Right after they put you in this room.
+Strange."
+
+"Thanks. I want there to be a record and a recording. Now that my lawyer is
+here it's even better. Would you mind me recording this as well? Just to be
+safe."
+
+"No, go right ahead. It's well within your rights." officer Ball responded.
+
+"Than I will need my phone. They confiscated it and I don't know where it is."
+
+"What? Oh no," officer Ball rose up, stormed out and I looked at Travis.
+
+"So sorry," I said, "I didn't mean for this to happen. I just wanted to talk to
+her about something."
+
+"First this department was known to be retaliatory. Officer Ball was put here
+to end it. She's been doing a great job, but there are still a few who can't
+shake off the past. But why are you here?"
+
+"That will become clear in a minute, honey. Thank you for coming."
+
+"Always," he replied as officer Ball entered the room.
+
+"They were actually trying to get in. Without a warrant! They just wanted some
+information, they said. Well, here you are ma'am." I handed my phone to Travis
+and asked him to record us. When he said he was ready I turned towards officer
+Ball.
+
+"Now I saw the report on Union Street, the one where you rounded up all the
+girls? I am an independent photographer and was looking for a long term project
+to do. I haven't told my husband yet because I got this idea this morning and
+we hadn't seen each other until just yet. Well, the idea is that I want to
+interview and maybe even photograph these girls. To find out why they are
+there? What made them choose this life? And through the photos show their human
+side. In all the news reports they are made out the be these evil girls, but
+there has to be another side to this. These are women with their own problems,
+their own insecurities. I want to find out who they really are. Do they have
+families? Kids? How do they live? And if they are forced can we find a way out
+of that lifestyle?"
+
+"Ah I see," officer Ball responded, "and why this conversation."
+
+"Because I wanted a record of me being here. Telling someone why I was there
+in case it is needed. To let someone know that I am not there to prostitute
+myself. That I am there to document these girls and what happens to them, about
+their lives."
+
+"I understand," she replied, "But it is my duty to tell you, as I will do with
+any journalist who comes to me, that it can be very dangerous and we can't be
+there all the time to protect you."
+
+"I am well aware of that, but thank you for the warning. I know it can be
+dangerous. I am willing to take that risk. Now, we still have to talk, my
+husband and I, so I can't say that I am going to do this. But just in case I
+do, I wanted to make sure there was an official record of me coming here before
+I started."
+
+"That was very wise of you," officer Ball responded, "I can see where you got
+this from. Mr Willingham is a skilled lawyer and we will have our disputes in
+court. And that is where they will stay. I don't hold any grudges against you,
+Mr Willingham."
+
+"Neither do I. If it hadn't been for my wife, I would be back in my office
+drafting a suit against this department."
+
+"Then it's a good thing she is here. Well, Mrs Willingham --"
+
+"Davis, I go by my maiden name. Laura Davis."
+
+"Hey don't look at me," Travis interrupted, "But it takes a lot of people to
+change her mind."
+
+Officer Ball chuckled. "Okay than, Miss Davis. I will make an official report
+of this. I will also include the recorded section of this part of your visit.
+You have your own recording and I will concede right now that this evidence is
+admissible in court. I just want you to really understand how dangerous this
+can be. Not only the guns, or the girls themselves. It wouldn't be the first
+time a woman like you would get abducted. I need you to really understand
+that."
+
+"I do. Thanks for the warning again. I fully understand the risks."
+
+As we walked outside one of the officers thew me a dirty look, something that
+didn't pass Travis. "You are so lucky she doesn't press charges. I would have
+had you badge. You should thank her for it." The officer didn't respond at all
+and we just left.
+
+We drove straight home where we had a serious talk about it. Travis couldn't
+understand why I wanted to put myself in so much danger. "I was just there to
+speak with Ball, I didn't know I was in danger."
+
+"I'm not talking about the police. Ah, you know what I meant."
+
+"I did and please Travis. Work has been slow the past few weeks and I am so
+bored. This idea is a very long term project, something I could work on for
+years. If only I could get to know a few of these girls. I could visit them at
+home, during the day and talk to them. They are still human beings, with
+feelings and I just want to understand why they chose to do what they do. Maybe
+some photographs, maybe a book or something. I want to show they are still
+humans, still people with their own problems."
+
+"I can understand that," he said, "But there has to be a safer way."
+
+"Like what?"
+
+"I don't know. Maybe the church over their has a program or they know of one.
+Talk to them first, maybe they can help so this is as safe as possible. If you
+just go out there at who knows what hour of the night I am scared what might
+happen to you. I'm not against this project at all. I just don't want to see
+you get hurt."
+
+"That's an excellent idea. Why didn't I think of that?"
+
+"What is?"
+
+"That church thing. God, why didn't I get that? Thank you so much, for rescuing
+me and supporting me in this."
+
+"Always, but I didn't say I supported this, did I?"
+
+"You said you weren't against this project."
+
+"So I did, so I did."
+
+The very next day I walked into the church near Union Street. A pastor walked
+up to me "Welcome, welcome, can I be off assistance? I am afraid we don't have
+any services today."
+
+"That okay father. I not here to receive communion. I am here for some
+information."
+
+"Ah, come my child. We can sit over here."
+
+We sat down in one of the pews and I was amazed by how quiet the church was. I
+hardly could hear the traffic outside. "Well father, I am here to get some
+information about the girls who work here at night. I am looking for a way in
+so I can talk to them. I am an independent photographer and I saw the report
+the other day how they got arrested. I want to learn who they are? Give them
+back some humanity, so to say."
+
+"Ah, yes. It's a big problem in these parts. Some of them don't have any
+chances. They leave school early, work some job, get pregnant and fired. They
+try to survive in any way they can. Some start stripping and one thing leads to
+the other. Some start out on the streets. The worst are the girls who are
+trafficked. They are smuggled in from countries far away and to repay them they
+are forced to do this. But no matter how much they earn, all they can pay is
+the so called interest. The base amount still is the same. They have no way out
+of this and most of them resort to something drastic. Almost all of them are
+addicted which makes the need for cash even worse."
+
+"I thought as much. Is there someone who's helping them, a program or the
+sorts?"
+
+"Well, we have an outreach, but they need to come in voluntarily. We help those
+who want us to help them. It's so hard to reach the poor women who are forced
+to do this. The moment they stop working they are rounded up like cattle and
+brought somewhere I am sure is horrible."
+
+"I understand, so there is no program you know of that actually is out there."
+
+"Let me think. Oh yes, Miss Johnson and Mr O'Brien are doing something. But
+they are helping the homeless too, not just these girls. Maybe you could get
+into contact with them. Wait, I must have some information on how to contact
+them."
+
+He walked off and I looked around the church. It was so beautiful and peaceful
+in there. I watched an older woman come in, make cross and sit down in one of
+the pews. She wore a scarf to cover her hair and it looked like she was
+praying.
+
+The father returned and in a softer voice he said "Here you are my child. Bless
+you for doing this."
+
+"Thank you father." I made a slight bow and walked outside as quiet as I could.
+I didn't want to disturb that woman. Once in my car I dialed the number on the
+paper I had received.
+
+"Hello," a female voice said, "You've reached Nighthawk outreach. We are not in
+right now. Please leave a message or call back --" the message was interrupted
+by the same voice."
+
+"Hello, just hold please. How do I stop this goddamn machine? Stop already. No
+I don't want you to record a message. Ah, hello? This is Ashley, how can I
+help?"
+
+"Yes, hello. Oh man, I have to adjust for a minute I was prepared to leave a
+message. But well, this is better. Hi. My name is Laura."
+
+"Hi Laura, how can I help you? Need condoms? Food? Fresh needles? Do you know
+where we are? I can give you directions. No questions asked. Just come by and
+we will help you in any way we can."
+
+"No, nothing like that. But it's nice to hear how you help people. Is there a
+chance I could come by?"
+
+"Sure, 21st and Amherst. There is a huge banner outside. Just walk in, all are
+welcome. We are here to help you in any way we can? Need to talk?"
+
+I could hear she was in her helping mode and so I just said "Yes, I need to
+talk."
+
+"Okay, I will be waiting. Just ask for me, Ashley. See you soon I hope and
+please do. It can all be better if you let us help you."
+
+Fifteen minutes later I parked my car just outside a tall building. According
+to the old paint it used to be some sort of factory. Now there was a huge
+banner reading "Nighthawk Outreach. Non-profit organization since 1986." I got
+out of the car and a bit nervous opened the door. Inside it was very
+comfortable and the walls were painted in warm shades of reds and oranges. To
+my left was a booth with one of those hotel bells you could ring. To the right
+was an open door to a room that was decorated like a living room. A man was
+sitting there watching TV. It was clear he was used to living on the streets.
+
+I rang the bell and the man looked over his shoulder to me. "Can I help you?"
+he said. I took a few steps forward so he could properly see me. "Maybe. I was
+told to ask for Ashley?"
+
+"Oh, she just stepped out for a minute. Wanted to get some groceries. Please
+sit down, get a load off. I won't bite." He had a raspy voice, either from
+smoking or drinking too much, maybe even both. "Want to see something else?" he
+continued, "this is boring any way."
+
+I shook my head. "I am Laura," I carefully said, "What's your name?"
+
+"They all call me Springboard, but Larry is my real name."
+
+"Why Springboard?"
+
+"Because I fell on one one day. Ripped my head right open. I had been sleeping
+in one of these buildings over there. I knew it was condemned, but at least I
+had a roof over my head. Well, I woke up real early as it was so cold. I fell
+through a hole and landed on that board. If someone hadn't heard me fall I
+would have died. But I didn't and ever since then they call me Springboard, or
+Spring for short."
+
+"But Larry is even shorter?"
+
+He started to laugh and cough. "That it is, ma'am. That is is."
+
+"Oh Laura, please."
+
+"No ma'am. I was in the military once, marine corps. I was taught to be
+respectful."
+
+"Al right, thank you for your service. Can I ask what happened to you?"
+
+"Oh, that's a long story. Let's just say I made some wrong choices, drank too
+much. I never did anything criminal, never. Just the wrong personal choices,
+you know."
+
+"I understand."
+
+"Ah I see you've met Larry." A voice sounded from behind me. A woman with long
+blonde curly hair walked in. Her arms filled with a big paper bag full of
+groceries. "Please be a dear Larry and put this away." Larry got up, took the
+bag from Ashley and said "Sempre Fi, consider it done."
+
+"Hi, I'm Ashley. Did you call earlier?" I nodded and she continued "Well, there
+are always surprises they say. What can I do for you?"
+
+I told her about my idea and she listened to me. She just let me talk until I
+was finished and when I was done she said "Ah, yes. We do have contact with
+them. They trust us and I don't want to do anything to betray that trust. Are
+you a police officer or have any connection to law enforcement?"
+
+"No, my husband is a lawyer and the police doesn't seem to really like him."
+
+"Who does?" Ashley chuckled.
+
+"Well, I do. At least one or I wouldn't have married him."
+
+"Touche. Do you have any intentions to use the information you get against
+these people?"
+
+"No, I want to show them as humans. In these reports they are always shown as
+being the bad guys, evil people. I want to talk to them. To see why they are
+doing this. Show their human side. That's all. And if they agree I would love
+to take some pictures of them. If they have kids to show them for the mothers
+who they are. Fighting to survive, to help their children."
+
+"Are you willing to sign a waver so when you do use any of the information we
+or any of the people we serve provide you against them, we can take legal
+action against you or the people you represent?"
+
+"My husband is going to kill me for this, but yes."
+
+Ashley chuckled again "I am sorry, but I do have to ask these questions. It's
+mandatory by law. Follow me, once you've signed the waver we can continue."
+
+We went into a small office at the end of the hall. We passed another open
+door, this time to the kitchen. "Come on now Larry, don't eat all of it now.
+Those were meant for dinner." Ashley said as she walked into the kitchen. "It's
+always the same with you. Please get out and go watch TV."
+
+When she came back she said "Larry, he got hit real bad in Iraq. Never the same
+when he got back. Ended up in the streets. But he has a kind heart, with the
+brain of a five year old."
+
+We went into the office where she handed me the waver. I quickly read through
+it and signed. "Here you are. I am officially dead now when my husband hears of
+this."
+
+"Well, I won't tell him."
+
+"I will," I said, "We do not have any secrets from each other. Not one."
+
+"Are you sure about that?"
+
+"Yes, why?"
+
+"So he knows you are here?"
+
+"Not really no, but I will tell him later."
+
+"Ah, so no secrets at all? I am just curious. It was the way you said it. I
+don't know it just struck me."
+
+"Well, we don't. We did once, before we moved here. We both had very busy jobs,
+you know the ones where you hardly see each other anymore. Well when I quit my
+job, long story, we went through a bit of a hard patch. Let's just say we
+talked and some things happened. Now we trust each other blindly."
+
+"Wow, may I ask what happened?"
+
+"Let's just say we opened our marriage for some outside interactions."
+
+"Outside interactions? With people, you mean? With other men?"
+
+"Yes, with other men. Or just one man, until now. It had been a fantasy of mine
+for I don't know how long."
+
+"Really? And he didn't mind?"
+
+"Oh no, he encouraged it. Somehow it just happened, it wasn't planned or
+anything."
+
+"I could never do that."
+
+"That's what I told myself. It still happened, not going to lie."
+
+"Wow, sorry for asking. But I like to get to know people. I am just so
+interested in their stories. That's what made me want to do this."
+
+"Who started this?"
+
+"Oh, Liams father. His daughter lost herself in drugs and they did everything
+to safe her. But she kept falling back. On the streets she was known as
+Nighthawk, because she only came out in the dark. She was murdered in 1985, a
+year later he started this. We've moved three times now."
+
+"Sad story. How did you get involved?"
+
+"I met Liam in college, we became friends and I started helping. We've been
+married for almost 10 years now."
+
+"What was her real name?"
+
+"Donna, Donna O'Brien. She was just 19 years old."
+
+"19? God, that must have been hard."
+
+"Yes, imagine losing your wife and then within two years losing your daughter
+like this. They got into a car accident and Donna blamed herself for it. She
+always said 'If I hadn't shouted she could have seen that car.' But it wasn't
+her fault. The other car ignored a red light and was driving fast. Only Donna
+survived, her mother was killed on impact. So was the driver."
+
+"Wow, what a story. Well, to nighthawk and may she rest in peace."
+
+"Thank you. But don't tell Liam I told you. He likes to tell it himself. It's
+his way of remembering her and keeping her alive."
+
+"It will be the first time I hear it."
+
+Ashley chuckled and said "Somehow I like you. I don't know why but I do. I
+think this might even work. You need to be straight forward with these girls,
+prove you have nothing to hide. And please, only talk to the girls I give you.
+The others might be severely punished if they are seen talking to you."
+
+"Okay, is their any way we can rescue them?"
+
+"Not if we don't want to betray their trust. The only thing we can do is to
+encourage them to go to the church. The pastor will shelter them and help them.
+But it's so hard for them to get there. The moment they try there is always
+someone to bring them right back. You will not see them but they will be there
+keeping an eye on these girls, trust me on that one."
+
+We started handing out packages containing a blanket, a toothbrush, toothpaste
+and other toiletries. I handed them a bag with four sandwiches and a bottle of
+water. "Leave the needles to Ashley," Liam had said on our way over, "She's a
+registered nurse and can spot when the need to see a doctor. Every Thursday
+three of them are available for them at the outreach, for free. The hard part
+is getting to actually do it."
+
+We stopped on a corner and we all got into the back of the van. "Remember no
+questions," Liam said once more before he opened the back doors. I couldn't
+believe how many already had lined up. We had just gotten there. Where did they
+all come from?
+
+We started handing out the packages and I kept saying "Hi, I'm Laura. I'm here
+to help.", just like Ashley had told me. The homeless were just grateful for
+what we gave them, the girls however all were suspicious of me. They hardly
+looked at me or with fear in their eyes. "Hi, I'm Laura. I'm here to help." was
+all I could say. They just kept coming, one after the other.
+
+"I'm running out," I whispered. Liam pointed to another box. "There" was all he
+said. I opened the box and handed out food once more. My heart broke when a
+girl no older than 16 or 17 walked up. Liam handed her the package and asked
+her "How many?" She didn't look up as she said "24" Liam handed her strips of
+condoms. I handed her some food and a bottle. Without even looking at us she
+ran away, disappeared in an alley.
+
+Seeing her was just too much for me to bare, I had to step out for a moment. I
+turned my back to the van and cried. I couldn't believe how many people were
+dependent on what the outreach did here. And than that girl? It was all so sad
+and here I was, the woman from the rich part of town who just wanted to talk to
+them. Talking to them wasn't enough, I needed to help them. Help that girl.
+
+On our way back Liam said "Good work, the both of you. Good work. I saw it got
+to you, Laura. It's good that you stepped away. The day I don't care anymore is
+they day I will quit doing this. It's hard, we all know. But thank you for
+this, you did a good thing today."
+
+"I can't stop thinking about that girl. 24 condoms? How long will those last
+her?"
+
+"About a day, or two" Ashley answered.
+
+"Two days?"
+
+"Sad but true," Liam said as he turned the corner, "She's the one I want to
+reach. She reminds me of my sister. But she can't be reached right now. She has
+closed the world off, she's in her own world now and all we can do is wait and
+help her the best we can."
+
+"Do you know her name?"
+
+"No, as said: we don't ask questions. If they want to talk they all know where
+they can find us. All we can do is wait." Ashley replied, "That's the hardest
+thing to do, but the only way to do it. Trust us. In all the time we are doing
+this we learned a lot, mostly on how *not* to do this." I nodded, but that girl
+just kept haunting me.
+
+When I got home Travis was cooking dinner. "Hey," he said, "no clients today.
+So I thought I come home early."
+
+"I'm so happy to see you," I said as I put my arms around him, "I did one of
+the hardest things in my live today. We handed out care packages, food and
+condoms today. There was a huge line that didn't seem to end. I have no idea
+where they all came from. Then there was this little girl, no older than 16
+maybe. She needed 24 condoms, Travis, 24. And when I asked Liam how long they
+would last he said 'a day or two'. Two days! Can you believe that?"
+
+"Yes, the young girls are big business. Sorry for my choice of words. These
+bastards want to get them as young as possible. Some through charming them,
+giving them kids, grooming them. Others are smuggled in. It's horrible."
+
+"But I am so happy to do this," I said, "It's hard but good work. These people
+need us, need someone they can trust. Who won't rat them out to law
+enforcement. And, oh yes, I signed a waver so I could help them."
+
+"You did what? A waver? Without consulting me? Oh well, your funeral." he said
+as he kissed me "Dinner is ready, come."
+
+"Aren't you mad?"
+
+"No, why should I? I can see how passionate you are about this and that's so
+nice to see. You should continue this path and I would love to meet them one
+day. Maybe I can offer my services too, you know pro bono."
+
+"That's a great idea," I blurted out, "I will ask them to dinner this weekend.
+It will have to be a bit early though. They need to be out there at 11PM."
+
+"Why don't we just go there this Saturday? I would love to see the place."
+
+"Deal."
+
+That Saturday we went to the outreach. I showed Travis around and he seemed
+fairly impressed. Liam came out of the office and I introduced Travis to him.
+
+"So what do you do?" Liam asked
+
+"I'm a lawyer," Travis replied.
+
+"So you are talking to the police then."
+
+"Well, yes. How will I hold them accountable if I don't?"
+
+Ashley walked in and she shook his hand. "Wait, are you *the* Willingham? The
+one that got Renata off? You are, aren't you?"
+
+"Yes, all she needed was a devoted lawyer and I was more than happy to be that
+one for her."
+
+Ashley turned to Liam "If you ever want to trust a lawyer, you can trust this
+one." Liam just stared at Travis as if he was still making up his mind.
