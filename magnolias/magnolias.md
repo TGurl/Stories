@@ -2195,10 +2195,675 @@ fairly impressed. Liam came out of the office and I introduced Travis to him.
 "Well, yes. How will I hold them accountable if I don't?"
 
 Ashley walked in and she shook his hand. "Wait, are you *the* Willingham? The
-one that got Renata off? You are, aren't you?"
+one that got Rosalita off? You are, aren't you?"
 
 "Yes, all she needed was a devoted lawyer and I was more than happy to be that
 one for her."
 
 Ashley turned to Liam "If you ever want to trust a lawyer, you can trust this
-one." Liam just stared at Travis as if he was still making up his mind.
+one." Liam just stared at Travis as if he was still making up his mind. He just
+stood there and Travis smiled. After a few seconds Travis said "Look, I have a
+reputation to hold up. If I suddenly were to inform police about anyone I meet
+here, that reputation would be blown. The cops hate my guts and I would like to
+keep it that way."
+
+Liam chuckled and said "That's what I wanted to hear. Welcome friend and don't
+make me regret trusting a lawyer."
+
+"I will do my best," Travis laughed.
+
+"Okay, now that the pissing contest is over," Ashley laughed, "Who wants some
+food? I'm starving." We went into the kitchen where one of the volunteers was
+preparing dinner. "Everybody this is Louisa, she's one of the many who help us.
+She used to be a cook in a home for the elderly, now she's retired she decided
+to help us. Good to see you Louisa."
+
+The Mexican woman smiled and said in broken English "Dinner not ready yet. Five
+more minutes. I will bring, yes?"
+
+"It was very nice to meet you. Smells wonderful." I said as I touched her arm.
+Louisa smiled and nodded. We went into the dining room and there were already a
+few people seated. "We can't feed them all," Ashley said, "But we can at least
+feed the ones who live here. We are helping them get a job, a place of their
+own and guide them for the first few months after. Until then they live here,
+upstairs."
+
+Travis and I waved and said "Hi, nice to meet you all." We sat down and I
+talked for a bit with the woman next to me. Her name was Vanessa and she got
+homeless after her husband died. "I tried the Salvation Army and they send me
+here. We just got everything straightened out and now I am looking for a place
+to stay. It would be so nice to live on my own again. Ashley taught me how to
+pay the bills, my husband used to do that, you know? When he died I did my best
+to keep up."
+
+Louisa came in with the food, it was so delicious. It was so nice to see these
+people being treated as humans and it was heartwarming to see how much love
+Ashley gave them. We weren't religious at all, but respected the ones who were
+and waited patiently for them to pray. Vanessa bent over to me and said "You
+did not pray."
+
+"Sorry, not a Christian."
+
+"We all have our flaws, dear. He still loves you."
+
+After dinner I helped Louisa clean up which she highly appreciated. Travis sat
+down with one of the men who had a problem with the VA. "I can send them a
+letter for you," Travis said, "I am not sure, but I think it's against the law
+what they are doing. Come to my office tomorrow and we can check."
+
+"Oh I can't afford a lawyer." the man said.
+
+"Consider it a thank you for your service, sir. I am more than happy to help a
+veteran."
+
+The relief on that mans face was immense. It was like the world was lifted of
+his shoulders. "Liam tried, he tried so hard. But he kept on running into a
+wall. This would be so helpful, I thank you from the bottom of my heart. Even
+if it doesn't work out, I thank you for your effort."
+
+"Let's see what we can do, okay? Here's my card. I've got some time around
+noon."
+
+As Travis got up our eyes crossed and I smiled. He just nodded and I knew
+enough. These people had gotten to him, his big heart was bleeding for these
+people and I felt butterflies rise up in my belly. It was another reminder why
+I had fallen for this man.
+
+"It's time," Ashley said, "We have to prepare to go out there. Here, wear this
+shirt. It will keep you safe. We are going to help the working girls. Sorry
+Travis, only women are allowed to come. Men are considered a threat. Don't
+worry, I will drop her off at home. She will be safe with me."
+
+Just as we were about to start the front door flew open. Around nine men with
+guns stormed in. "Be quiet," Ashley said, "Don't do anything. Let them do what
+they need to do."
+
+The men went into every room, checking everything. In the mean time their
+leader walked up to Travis. "You a cop, gringo?"
+
+Travis looked him in his eyes and calmly said "Oh, I don't hope so."
+
+"Trying to be funny, gringo?"
+
+"No, I'm a lawyer and we aren't funny."
+
+"Better not be," the man started looking curiously at Travis, "Do I know you? I
+think I know you."
+
+"I've been on TV a few times in the past few weeks."
+
+"That's it! You represented Rosalita, you got her off. You pissed off the cops
+real good. He's okay!" The others shook their heads to him. The leader looked
+around "Okay, let's go." And as quick as they had come they were gone again.
+
+"What was that?" I asked.
+
+"That's a check," Liam said, "They check if there are cops here. My father made
+a deal way back. If we kept quiet to the police, they wouldn't hurt us. It's a
+shitty deal, but this way we are protected and can help those in need."
+
+"But don't they take anything?"
+
+"I hope not," Ashley said, "that would violate the deal. Until know they kept
+to it for all these years. The know we take care of their *merchandise*, that
+we keep them as healthy as possible. I hate it, but it's the best we can do.
+They are just too dangerous otherwise."
+
+After I put on the shirt with the logo in front and on the back "Nighthawk" in
+yellow letters, we went out the door with bags of things the girls might need.
+This time we didn't take the van, we walked. It was already dark outside and
+the streets were quiet. I had the eerie feeling of being watched, but kept
+quiet.
+
+We turned a couple of corners until there they were. The working girls. One of
+them whistled like a hawk. "She signals that we are here," Ashley said, "Liams
+sister did that every night. Now it's the call that it's safe for them to come
+out. They started doing that all on their own, we see it as an homage to
+Nighthawk. A way to keep her alive."
+
+We handed out wipes so the girls could clean themselves, hygiene products,
+condoms and anything else they needed. I was still being looked at with
+suspicion. "I'm Laura. I'm here to help, no questions. Just help" I said over
+and over again. When we had helped them all we walked on, to another spot where
+girls were roaming the streets.
+
+"Okay, ignore their looks. Don't turn around. These girls are being watched and
+they know where to look. Any movement those guys don't trust will be answered
+with guns. So just hand them what they need, be warm and open. Give them your
+name and only your name."
+
+As soon as we turned the corner the girls shattered. We kept on walking until
+we heard that hawk-like whistle again. One after the other came out of hiding.
+A girl came close to me and kept looking at a point across the street. "Laura,
+here you are. How many do you need?" The girl kept looking over my shoulder "A
+couple" she answered. I handed her two strips of condoms and she rushed away.
+It was intense helping them, but oh so needed.
+
+After a few minutes we walked on. "Don't look back," Ashley said, "just keep
+walking." When we turned a corner again Ashley said "The next group aren't
+working girls. Just women who are homeless, we help them out too. Now you can
+talk to them. Ask them what they need. Just treat them as humans."
+
+At the end of the night I was an emotional wreck, the tension had taken a toll
+of me and Ashley smiled. "I felt the same way, the first few times. Just
+remember that they accept us to a certain degree and we did a good thing
+tonight. Come, I will take you home."
+
+I was so tired when I fell on our bed. Travis was already sleeping and all that
+I had seen flashed through my head. It took me a long time to fall asleep.
+
+## Chapter Six
+In the months after that first night some of the girls had started to trust me.
+Some of them had opened up to me and the gangs who ruled the streets knew who I
+was and why I was there. They even allowed me to talk to the trafficked girls,
+the ones they heavily protected. I had proven I wasn't there to take them away.
+
+I was sitting in the front room of the outreach when there was a knock on the
+door. I opened it and that young girl I had met weeks earlier rushed in. "Close
+it, close it" she said. I had learned these girls needed to get to the church
+to be safe. We couldn't help them to escape.
+
+"You can't be here," I said, "You need to get to the church."
+
+"I know," she panted, "Let me go out the back. They didn't see me get out.
+Please, let me go out the back."
+
+I showed her the way and she slipped out. Hours later I heard they had caught
+her mere yards from safety. She was made an example off and they shot her 33
+times, riddled her with bullets. I learned her name was Molly and she ran away
+from home when she was 13. Her parents had been looking for her ever since. She
+was buried in her hometown of Marietta, Georgia. At least she was home again.
+
+This whole situation reminded me how dangerous it was. I hadn't experienced it
+yet, but this was almost normal for all the people in this part of town. The
+police never caught the one who shot her, there was a wall of silence. Nobody
+ever saw anything.
+
+When they asked me I was quiet too. "We can't break the trust these people have
+put in us. All we can do is try and make someone talk to you." The officer
+wasn't happy, but he remembered who I was and left it at that. 'I'm not here to
+make you happy', I thought.
+
+Another few weeks went by and I had given Molly's death a place. You couldn't
+dwell long on those things, you had to move on. We were out there again and I
+was talking to one of the girls. "I started this to get to know you. I want to
+write a story about who you are. Not your names or anything, just your story.
+How did you end up on the streets? Why did you start doing this? I want to show
+the world you are still humans."
+
+"You wouldn't understand," the girl said, "You don't work the streets. You will
+never know what it is. It's no use, what good will it do me?"
+
+"Nothing," I replied, "But maybe some people with think differently about you.
+Maybe someone out there can help. That won't happen if you keep hiding and
+we're not the group for that either. We are here to keep you healthy, to give
+food and anything you need. We can show you options, but that's it. If you tell
+me your story I can write it down. Write an article or a book, showing the
+world you are just a person with feelings and problems."
+
+"Hah, just let me be. You will never understand it. If you want to know how it
+feels, than do it yourself. Get into a car, ask them what they want and do it.
+Then, maybe, we can talk. But you will never do that. You just hand us some
+stuff and go home, leaving us here to defend for ourselves."
+
+"I appreciate what you said," I replied, "and maybe you're right. Maybe I will
+never understand, not fully. Even if I was to try it, it will never be the
+same. I can still go home. But I'm trying."
+
+She just walked off waving me away. I felt so helpless at that moment. I had
+found a way in, still they didn't fully trust me. There always was this
+underlying suspicion, that look of 'you aren't like us'. It had been months now
+and I still hadn't gotten anywhere with these girls.
+
+One weekend Travis had to go to a seminar about something legal. It was
+Saturday night and I sat on the couch in the dark. The words of that girl
+popped into my head again. An hour later my heart was racing as I drove to the
+outreach. I parked my car behind the gate and locked it. I just looked straight
+ahead as I walked in my high heels towards the first group of working girls. As
+I walked I pulled up the tube dress I was wearing and clasped my purse.
+
+As I turned the corner that whistle sounded again. One of the girls how saw me
+looked at me top to bottom. "Why are you dressed like that?"
+
+"One of you told me I would never understand. Well, I'm here to experience it.
+For now I am just one of you."
+
+"Wow, look at her. She wants to be like us. Well sister, see what you got."
+
+I nodded and started walking up and down the sidewalk. Some of the girls looked
+at me, but soon enough they ignored me. I took my place underneath a
+streetlight and my heart was racing. I was actually doing it, I was there to
+sell my body. The first car slowly drove by, I could see the man looking at me
+and I smiled at him. He kept on driving until he saw what he liked and the girl
+talked to him. "Hey baby, want some company? -- O, darling, that's 50 for a
+blow job and 100 for everything I got. Strictly with a condom. -- What? --
+Okay, baby." She opened the door and got into the car.
+
+I took a few steps and as a car came by I smiled at him again. He stopped,
+rolled down the window and I got instantly nervous. I took a few steps bent
+over and said "Hey sugar, want some company?"
+
+"What you're offering?"
+
+"50 for a blow job and for 100 you can have me all the way."
+
+"Without a condom?"
+
+"No, only with. I have to keep the merchandise clean, you understand don't you
+sweetie?"
+
+"Get in."
+
+Oh my god, I thought, this has gone way too far. But I had struck a deal and I
+got into the car. We drove off and he turned some corners. He parked in a dark
+spot and turned to me. I gave him my best smile, anxious about what was to
+happen. Was I really going through with this? I had to, there was no other way.
+
+The man reached for something to the side of the chair, I was sure he was
+pulling out a gun. I saw something flashing, it was a badge. "I'm officer
+Calloway. I'm undercover. I know who you are. What I want to know is, why are
+you here, dressed like that?"
+
+"I'm trying to connect to these girls. This was the only way they would trust
+me. And I wanted to know how it felt, being on that street."
+
+"Ah, you're so lucky I saw you. Where can I drop you off? There's going to be a
+raid and I'm the scout. If you tell me where, I never saw you. You weren't
+here."
+
+"But the girls saw me with you. How --"
+
+"I won't be there for the raid. I can't blow my cover. This is the only way we
+can talk to these girls. To make it look authentic we give them the money so
+they can say they have been working. We need to get out of here. Okay, bend
+over and act like you are working."
+
+I bend over and with my mouth I touched his crutch. I moved my head up and down
+as if I was sucking his cock. He made groaning noises "Oh yes, bitch suck it.
+You little whore, suck it hard. Want me to come in your mouth, bitch? Oh yes,
+that's good."
+
+Hearing him talk like that did something with me. I opened his pants and got
+his cock out. I licked it and started sucking him off for real. When it was
+hard enough, I crawled on top of him, pulled down my dress and guided him
+inside me. I knew he didn't wear a condom but I didn't care.
+
+"If we are going to sell this," I whispered, "Let's make it real." I started to
+move my hips and I felt his cock getting harder inside me.
+
+"Oh you little whore," he groaned, "Oh my god, this feels so good."
+
+I tensed my vaginal muscles and rode him until I felt him twitch and throb. "Oh
+yes," I panted, "Come for me. I got off of him and placed my mouth over his
+hard throbbing pole. I could taste myself and took him in deep. I gagged on it
+and just as he was about to explode I pulled back. I felt his cum enter my
+mouth, it tasted a bit salty and I swallowed it as best I could.
+
+I licked his pole clean and then I got up. Pulled up my dress and held out my
+hand. He handed me a 100 dollar bill and straightened his pants. "Why?" was all
+he asked.
+
+"Because we had to make this real," I answered, "Now I don't have to lie to
+these girls. I can truly say that I did it."
+
+He just shook his head, looked at his watch and said. "Just duck down, the raid
+is about to start. I will just drive by, so the girls will think I tried to
+drop you off and that I saved you. Where can I drop you off?" I told him where
+my car was and about ten minutes later I got out of his car.
+
+Another five I was driving back home. As I walked in the door I reached for the
+100 dollar bill hidden in my cleavage. "The first money I made," I thought and
+smiled, "You filthy whore." I pranced around the living room and took off my
+dress. With a black marker I wrote in all capitals *I AM A WHORE* on my belly,
+underneath I wrote *$100* with an arrow pointed down at my vulva. I got out my
+camera, placed it on the table and took a photo of myself holding up the 100
+dollar bill. 
+
+When Travis called it was just after 1AM. "I was hoping you were still awake.
+What are you wearing?" Oh, someone was frisky, I thought.
+
+"Nothing, I am completely naked." I answered.
+
+"No, you aren't." He replied.
+
+"Yes, I am," I said, "want proof?"
+
+"Yes."
+
+"Okay, Facetime me."
+
+Within seconds the app opened up and I answered the call. First I just showed
+my face. "Hey darling? Feeling hot?" I said as his face appeared. He nodded.
+
+"And lonely. So you were saying --"
+
+"Okay, before I show you. Promise me not to get angry."
+
+"I promise."
+
+"Okay, I was out on the streets again. Talking to those girls again."
+
+"Yes, I thought you might."
+
+"Well, It went a bit differently than usual. I didn't wear your shirts. I wore
+that red tube dress you like. And heels. -- No don't say anything, just listen.
+I went out there because they told me I wouldn't understand them if I didn't
+try it for myself. So I went there tonight and I stood there on the sidewalk,
+underneath a streetlight. Oh yes, get it out. Is this turning you on? Hearing
+that your wife was on the street, playing a prostitute? Huh? I can see it, yes
+pleasure yourself."
+
+I watched him a little and got up from the couch I was on. "Well, a car stopped
+near me and I went over to his opened window. 'Hey baby', I said, 'Want some
+company?' Oh yes, tug it. I want to see you cum. Well, he agreed to my price
+and I got in the car. We drove for while until he parked. He handed my the
+money and I started by sucking his cock. His big cock, Travis, it tasted so
+good. I felt hem get hard in my mouth. Then I got on top of him, rolled down my
+dress so he could see my boobs. I placed his rod against my wet pussy and
+teased him a little. Do you like it? Do you like hearing how your wife
+prostituted herself?"
+
+Travis groaned and nodded heavily. "Slowly I sat down on him. Feeling his cock
+slide inside me. I am a whore now, Travis, I am officially a whore. He gave me
+100 dollars to fuck him and I loved it. I can still feel him inside my pussy."
+I placed the phone on shelve and stepped into frame. When he saw what I had
+written on my belle he groaned even harder.
+
+"See? I am naked. I am a whore now, Travis, tonight I found what I want to do.
+I want to be a whore, a slut, I want to fuck as many men as possible and I want
+you to film it, to take photos. Oh yes, tug it, show me how much you love
+hearing your wife sold her body for 100 dollars. This bill, Travis, this bill
+he gave me for fucking him. I rode him for a long time, Travis, my boobs
+bouncing in that car. Anyone who walked by could see me as I was fucking him
+and I just didn't care anymore. And he came so much, Travis, I tried to swallow
+it all but it was just too much. Look at this mouth Travis, this mouth sucked a
+cock for money. Yes, are you there? Come for me? Show me how much you liked it.
+Yes, yes, oh yes. So nice, I wish I was there to clean it with my mouth."
+
+Travis was breathing heavily and I just stood in the middle of our room with
+the words *I AM A WHORE* written on my belly. We both were happy at that
+moment, Travis because I had been with another man and I was happy because I
+had told him. I had kept to my promise to be honest about anything that
+happened.
+
+"I never thought --" Travis started.
+
+I interrupted and said "You know what the best part is? No? Well, I didn't even
+have to do it. He was a cop, undercover VICE. He knew who I was and told me
+there was a raid coming. Because he saw a gang member he asked me to pretend. I
+don't really know what happened, but I was sucking him for real and then I had
+sex with him. He handed me the money. At least now I don't have to lie to those
+girls, I guess."
+
+"Look at you, you are a whore and I love it," Travis said, "I am so happy you
+were honest about it. But we will have to stop now."
+
+"Why?"
+
+"I talked to some officers tonight. They are rounding all the girls up, even
+the safe houses. They are going to rescue most if not all of them. The
+trafficked girls will go to safe houses all over the country. The other girls?
+I don't know, prison maybe. But there will be a special program for them to get
+out of this cycle. I called Liam to inform him and he's happy with it. Finally,
+he said. They are going to help the homeless when it all is over."
+
+"Good," I replied, "I hope they get them all."
+
+"Oh, it will be a huge blow. The city will start renovations, projects and all
+kinds of things to make it safer there. More police in the streets. Officer
+Ball was planning this for years now."
+
+"Well, I'm sorry that it's over. But it's for the best, I guess."
+
+"Yeah, sorry about your book."
+
+"That's okay. It wasn't to be."
+
+Travis and I talked for a while longer until it was time for him to sleep. "See
+you tomorrow, my little whore." I just smiled and laid down the phone.
+
+It had been a huge operation. In total 300 something people were arrested, 90
+girls were saved and put into shelters all over the country. I was a bit sad
+that I didn't know how they were and tried to get information as much as
+possible, but they were hidden well. I had heard the rumor they all had gotten
+new names, new identities. It was all for the best I thought.
+
+I had done some photo shoots for a small magazine and some other odd jobs.
+Travis was busy defending some of the girls they had arrested. A non-profit had
+asked him to do so and he was paid for it by them. He got some of them out on
+probation, others a small a sentence as possible provided the girls would enter
+the program.
+
+A very emotional moment was when I was there to see one of them being reunited
+with her children just before they were placed with their grandparents. "I will
+be back soon, just two years. You can come visit any time," she said, "Mom
+loves you both so much." The children were crying too and didn't quite
+understand what was happening.
+
+The woman looked at me and nodded. It had been hard work but this was the least
+I could do for her. When the children were taken away by their grandparents I
+at down at here table holding her hands. "You will still not understand," she
+said, "Just like I told you."
+
+"And you were right. But I did try it and I did go with one of them." I
+whispered, "100 dollars, baby." She just looked at me, smiled and said "Never
+thought you would actually do it. I'm impressed. But it's not the same."
+
+"I know," I replied, "But I did do it. I am partially just like you, a whore."
+
+She giggled and said "Sister, we call ourselves sisters."
+
+"Sister it is."
+
+It felt awful leaving her behind in that prison, but it was for the best and
+she was happy she got the help she needed. "It's going to be hard, with my
+parents and all. But at least they showed me they still love me. And I will
+make them proud." was the last she said to me. She was transferred to another
+prison closer to her children and I lost track of her. I do hope she's alright
+now, but I don't really know.
+
+## Chapter Seven
+During all this time I still had contact with Marisha, but I never told her
+anything about it. This was between Travis and me I thought and I really didn't
+know how she would respond. Not that it felt good keeping secrets form her, but
+that was the way it was going to be.
+
+Marisha was very busy at the hospital and her schedule was just crazy at times.
+On top of that she was specializing to become a surgeon. "Better hours, more
+pay," she said. This meant we hardly had any contact during that time, but when
+we did the calls lasted for hours. Thank God for Facetime and Skype.
+
+One day it was just after one in the afternoon the doorbell rang. I pressed the
+button of the intercom and said "Yes, hello." A very cheery voice shouted
+"Guess who's in town?" It was Marisha, she was in town for a meeting with the
+local hospital. I opened the door for her and a few minutes later she walked
+in. A big smile on her face.
+
+"Come, we need to celebrate."
+
+"Why?"
+
+"I'm a surgeon now and I got a job at St Francis."
+
+"What? You did? Congratulations!"
+
+"Yep, I'm officially moving here."
+
+"That's great news. What about Matt?"
+
+"Oh, he's coming too. He already has a job offer."
+
+"Wow, great. Just a moment, I will be ready soon."
+
+We celebrated at a coffee shop nearby and after we went to Travis' office to
+tell him the good news. "This is nice," Marisha said, "You've done well for
+yourself."
+
+"Ah, it's nice being my own boss." Travis said.
+
+"Is it okay if I steal your wife for a few? We have a lot to talk about."
+
+"Sure, I'm busy anyway."
+
+We went back to our apartment and talked for quite some time. I felt the need
+to open up to her, but didn't want to ruin her day. But I had to tell her about
+Hawaii some time, I thought. I can't keep this from her, she's my best friend
+and I am betraying her. All those thoughts went through my head.
+
+"Okay, what's up?" Marisha said at some point.
+
+"What?"
+
+"I can see you're thinking of something. Shoot, let it out. Tell me."
+
+"I don't want to ruin your day, it can wait."
+
+"Until when? When I've moved here? No girl, let it out."
+
+"Okay, here it is." And I told her everything. About that day in the bar, how
+we had talked about it, fantasized. How I got that job for TMZ and what had
+happened in Hawaii. After I started talking I just couldn't stop. It all came
+out.
+
+"What? You are lying."
+
+"No, trust me. I'm not." I got up, went into our bedroom and returned with the
+book I had made for Travis. She skimmed through it and said "Wow, you really
+did. Weren't you scared? You did use protection, right?"
+
+"No, it just happened. In the heat of the moment I even let him -- come inside
+me."
+
+"You did? Ah, you whore." Marisha laughed.
+
+"Aren't you angry?"
+
+"Why? This was between consenting adults right? So if this is what you and
+Travis need, why should I care? I am just amazed that it's you. I would never
+have thought."
+
+"I didn't either. Sorry I kept it from you."
+
+"That's quite alright. I am a doctor, remember? I've seen and heard it all."
+
+"There's something else," I whispered, "I did something you might not like at
+all."
+
+Marisha just looked at me and I said "Two weeks ago I -- Do you remember those
+girls I told you about? And the outreach program?" Marisha nodded. "Well, I was
+one of them for one night. I got into a car with a John and he paid me 100
+dollars. I did it, I fucked him for 100 dollars."
+
+"You did what now?"
+
+"I had sex with a man for money and I loved it. I want to do it again, it was
+so exciting. Standing there on the street, dressed all sexy, those cars driving
+by. It was all so -- so -- hot. My heart was racing when I got into that car.
+He handed me the money and I did it."
+
+"Wow, really? Laura! You slut. You whore! And I can say that without insulting
+you because you are a whore now." Marisha said. I couldn't quite get her
+feeling from it. She leaned over to me whispering "Was it good? A nice big
+cock? Did you come?"
+
+"It was -- I don't really remember. All I felt was lust, unbridled lust. The
+moment he entered me it felt so right, like I finally found who I am. I can't
+really explain it."
+
+"I think I understand. I had something similar, I was helping in surgery,
+someone had fell ill and that's when I knew that surgery was it for me. I
+watched him sow that leg together, so calmly and precise."
+
+"Something like that. I am so sorry I didn't tell you. I just didn't know how."
+
+"Okay, I haven't been honest either. It's not going well between Matt and I. It
+hasn't been good for a while. That surgery I told you about? Well, it was near
+the end of my 24 hour shift and I retreated to my bunk to get some rest. The
+door opened and he stepped in. Before I knew it we both were naked and I was on
+top of him. Matt and I hadn't had sex for months and I just -- needed it. We
+had steaming sex and -- he came inside me too."
+
+"He did. You slut, you."
+
+Marisha chuckled "Yes, it was so good. It was a release I really needed. When I
+came home I told Matt what had happened. I didn't want him to find out
+otherwise. He didn't say a word to me, just went upstairs and we didn't speak
+for two days. Then I got this offer and when I told him about it he just stood
+there looking at me."
+
+"Yes, what happened next?"
+
+"He lunged at me, tore off my clothes and ravaged me. He hadn't fucked me like
+that, ever. He felt like an animal. I came so much and hard. When he exploded
+his seed landed on my face, it was so much. Ever since then we have sex every
+single day. We're getting better, we're talking again. I don't think he has
+forgiven me."
+
+"But you are having sex, right?"
+
+"Oh yes. But that's just satisfying needs we both have."
+
+"Ever thought you might be like me? Wanting sex with other men? And maybe Matt
+needs to have sex with other women? As long as you both are honest about it,
+what's so wrong?"
+
+Marisha thought about it and said "You might be right. We can't continue like
+this. All we do is have sex and don't get me wrong, I like it, but you might be
+right about that."
+
+"Let's order a pizza," I said, "I am starving and do not want to cook."
+
+Marisha laid down on the couch, while I ordered a pizza. While we were waiting
+I showed her some of my outfits and kept the tube dress on as it felt the most
+comfortable. When the doorbell sounded I buzzed open the door. I walked back to
+Marisha handed her my phone and said. "Film this." When she said she was
+recording I took off my dress as the doorbell rang again. Fully naked I opened
+the door much to the amazement to the boy bringing the pizza. I bent over with
+my back to him as I picked up my purse form the ground. "How much is it?"
+
+"20 dollars," he breathed a little heavy.
+
+I smiled, stood close to him and handed him the money. "You can touch them if
+you want," I whispered. Gingerly and carefully he raised his hand and squeezed
+my boob. At the same time I squeezed the bulge in his pants. With my other hand
+joining I opened up his belt and finally took out his cock. I jerked him for a
+few moments, raised my left leg and guided him inside me. "Now fuck me," I
+whispered in his ear, "Fuck this whore."
+
+He started pumping and I urged him to go faster. In the mean time Marisha had
+gotten a little closer to get a good angle of this cock sliding in and out of
+me. I looked straight into the camera and moaned. "Oh yes, fuck me. Fuck this
+slut. Fuck my pussy." When he indicated he was about to come I went down on my
+knees and he exploded all over my face.
+
+I cleaned his dick with my tongue and he put it away quickly. I handed him the
+money and closed the door behind him. With his cum still on my face I looked
+into the camera and said "Let's eat some pizza, shall we?" Marisha stopped
+recording and said "You are a slut!"
+
+I went into the kitchen to clean my face. But Marisha stopped me and started
+licking my face clean. When she reached my lips we stared into each others eyes
+and kissed. Softly at first, more passionate after. I took of her shirt and the
+rest of her clothes. We ended up on the couch, kissing our naked bodies pressed
+against each other. Her hand wend down and she pushed a finger inside my very
+wet pussy. "You don't know how long I've longed for this," she whispered. We
+kept on kissing and I slide my fingers into her cunt. We were moaning loudly
+when Travis walked in.
+
+The moment he saw us he closed the door quickly and said "Don't stop on my
+account." He opened the pizza box, got a slice and sat down to watch us. I
+stared at him as I placed my legs on either side of Marisha's head. Slowly I
+sat down on her face and she started to lick me. Feeling her soft lips against
+mine, her tongue on my clit as Travis was watching was too much and I had an
+orgasm.
+
+Travis stood up, took off his pants and I saw his big dig being so hard. He
+slowly walked up to us and I offered myself to him. To my utter amazement he
+spread Marisha's legs and pushed his dick deep inside her. Marisha moaned and
+said "Oh yes, fuck me as I am licking this pussy. Fuck me hard." We all had a
+big orgasm and Travis exploded deep inside Marisha.
+
+When he pulled out I pressed my cunt firmly against hers and started to move my
+hips. Knowing her fluids were mixing with mine and Travis' made me come again
+and again. So did Marisha and we kept going until the both of us were
+exhausted.
