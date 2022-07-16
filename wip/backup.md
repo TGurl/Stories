@@ -1,471 +1,600 @@
 # Being Shared
-
-_an erotic tale by Transgirl_
-
-## Introduction
-
-We all learn to share when we are young. All we do is act on what we have
-learned, what is so wrong about that? Still whenever people find out what we
-do, we get either strange questions or get scolded that what we do is wrong.
-That's something I just don't understand and maybe never will.
-
-First off all this all takes place between consenting adults, secondly we
-aren't hurting anyone. On top of that it isn't that we are doing it right there
-in front of you, it all takes place in our own homes or places where people
-with the same ideas congregate. They just do not know how many people are
-active in this lifestyle, some in the open others hidden acting like they
-needed someone to come and repair something, just to have an excuse for the
-neighbors.
-
-To clarify we didn't start out this way, it sort of sneaked in and stayed. It
-grew and slowly got more prevalent in our lives. I can't really recall when or
-how we began to explore that side of us all I can say is at some point we did.
-First we talked about it, then we fantasized. To make things more interesting
-we watched some videos together while talking about how we would experience it,
-how we would possibly feel. Would either one of us get jealous? Would this ruin
-our relationship?
-
-It all went so slow and that's the way I wanted it to go. I was fearful of
-planning it, didn't want to go to a club. That just felt like too much force on
-me. What I wanted was for it to feel natural, like when you first start dating.
-There's the first kiss which leads to everything else until you share the most
-intimate with the one you fell in love with. I needed that intimacy, that
-connection. I couldn't believe people saying they did not need that.
-
-The journey we took, the path we wandered was one of many twists and turns. We
-had good and very bad times, but along the journey we always knew one thing: we
-loved each other and would do anything to save this relationship. That simple
-fact helped us step over boundaries we never thought we either would or could.
-To make sure we didn't blame the other we agreed on one thing, we would always
-tell the truth. Even if it meant we knew we would hurt the other. That brutal
-honesty was what saved us in the end as we both had agreed to this neither of
-us could blame the other. You would think this would be a source of many
-conflicts, but we experienced it differently. To us it was a source of peace, a
-way to end the fight, the one thing be both agreed on.
-
-I have read some stories about living this way, they are all very personal
-stories. What goes for us doesn't mean it is right for you, or the other way
-around. You have to find a way to integrate this lifestyle into your
-relationship so you both get something out of it and above all, as I said
-earlier, never to hide anything.
-
-There are many people who have stories about this, this is ours.
+*an erotic tale by Transgirl*
 
 ## Chapter One
-
-In high school I was never the popular kid, just a regular student who wanted
-to make her parents proud of her. I had set my goals to go to college in Fort
-Dix, our capital and the seat of the most prestigious college in the country
-and maybe even the world. My parents didn't particular like me moving so far
-away, at the same time they didn't want to stop me from dreaming to once get
-there.
-
-Ever since I first heard of _Kingston College_ I was simply fascinated by it. I
-could spend ours looking at pictures of the campus. From the central square
-with the big oak tree in the middle, the old buildings surrounding it, the
-entrance gate with the line of red bricks marking the transition from being a
-kid to being an adult. Then there was the park surrounding the school with the
-ponds and artificial waterfall. The weeping willows along the canal in the
-center of the park, with the students competing in rowing boats. It all was so
-magical to me. All I wanted was to be a part of that and nothing would stop me
-from getting there.
-
-All during school I was seen as the nerdy kid, the one who did just one thing:
-study. For the most part that was true, it also came rather easy to me. I also
-had time for social things, like playing soccer for the school team. As with
-everything I was very competitive with it, all I wanted to be was the best.
-Second place was never good enough for me. I didn't believe in everybody
-winning, I just thought that that was stupid.
-
-Even though I presented myself as someone who didn't care, in secret, when I
-was alone, I cried about not having any _real_ friends. I didn't have anyone
-who I could share my secrets with, building walls the older I got. By the time
-I was graduating it took someone strong to break through those walls, I wasn't
-about to let just anyone in.
-
-The day I heard I had been accepted to my dream was one of the best of my life.
-It seemed like the sun shined a little brighter, the colors were more vibrant,
-I could take on the world and win. My parents were excited for me too, at the
-same time they were sad to see their only child leave the house and to the
-other side of the country no less. They were worried for me, but never said as
-much. All I got was total support from them and how much they loved me.
-
-After graduation all my time was spent in finding a place to stay as I didn't
-want to live in the dorms. But that wasn't as easy as I thought it would be and
-I had to resort to the dorms. I was too late to get into the all girls dorms,
-so had to settle for the mixed one. At least I would share my room with another
-girl, which made me rather anxious to go. I never was good meeting new people
-and I was sure this time would be no exception.
-
-In the documentation we received they had also described how much space you had
-to store your belongings, which basically came back to one closet I could use
-as a wardrobe and whatever I could store underneath my bed. "I will be looking
-for something else while I am there," I told my parents, "I don't want to be in
-the dorms for long."
-
-"Maybe you like it," my mother said, "being amongst people your own age.
-Exploring what it means to be an adult. College was the best time for me, lot's
-of parties to go to and just having fun being young. Maybe that's something you
-could try while you are there."
-
-That thought horrified me. I had been to party, once or twice. Did my best to
-be entertained, but people somehow changed as soon as they arrived at the
-party. Sometimes I didn't recognize them at all. Then there was the music, the
-volume cranked up so loud you could hardly speak. As with everything I put up a
-mask and acted like I was enjoying myself. It had become second nature to me to
-put on that disguise and be social.
-
-The time had come to leave the house and start my journey to adulthood. As my
-mother and I walked to the terminal I looked over my shoulder and saw my father
-waving to me. If I looked close enough I could see the tears in his eyes. He so
-much wanted to come with us, but his boss didn't allow him time off. So he had
-no choice but to send me off at the airport. The last hug he gave me was so
-tight and he whispered that he loved me in my ear.
-
-After a three hour flight we landed safely in Fort Dix. As we waited for our
-luggage to arrive I felt a little excited to see the city I would live in for
-at least the next four years. With our luggage in our tow we walked towards the
-taxi lane and about an hour later we arrived at our hotel, just blocks from the
-college I was about to attend. That day was mere days away now, which gave us
-some time to explore Fort Dix a little.
-
-On the second day there was a knock on the door. We both looked at each other,
-wondering who it could be. Only family knew where we were. "Maybe it's someone
-from the hotel," my mother said. I walked over to open the door, but decided to
-check the spyglass first. I couldn't believe it. I gasped, looked over my
-shoulder to my mom and threw open the door. "Dad!" I shouted. I jumped into
-his arms and he said "Surprise!"
-
-After the initial shock I asked him "Why? How are you here?"
-
-"I got here by plane, just as you did."
-
-I slapped his arm "You know what I mean."
-
-"I asked my boss again and told him how important this was to me. He said if I
-could find someone to replace me it would be okay. I wanted to ask Trent, but
-he didn't even let me ask him. All he said was go, I got you covered. And now
-here I am. The front-desk said there was a pullout bed under the bed, I can
-sleep on that."
-
-"Are you kidding?" I shouted, "You sleep with mom and I will sleep on the
-pullout. I am so glad you're here."
-
-The three of us explored the city and the first time I walked in that park I
-had seen on photos I couldn't believe I was actually there. Seeing those
-weeping willows was unreal. "I thing that statue is over here," I said pulling
-my mom as I turned left. I wanted to see it all and I wanted to share it with
-my parents. They smiled all the time and were happy to see me this excited,
-which was easy for me as I didn't have to vein a thing around them. They knew
-who I was and how I felt without me having to say a word.
-
-Ever so slowly the important day arrived and I woke up early that morning. My
-parents were still asleep and as quiet as I could I got out of my bed. Sleeping
-on that pullout had been more comfortable than I thought it would be. I went to
-the bathroom and when I returned my mother mumbled "Go back to bed Laura. It's
-way too early." But I couldn't go back, I just was too nervous about what was
-about to happen that day.
-
-I went over to the living area, if you could call it that as it was basically a
-table and two chairs, and I looked out of the window. Beneath the city woke up
-too, if it ever went to sleep that is. I saw the sun come up and the sky was
-filled with the most beautiful colors. It promised to be another very nice day.
-"I can get used to this," I thought as the weather where I came from was
-totally unpredictable. "We have all seasons in one day" was a favorite saying
-around that town.
-
-I heard my mother grumble and watched how she got out of bed. "My God, it's not
-even seven." she mumbled as she always did in the mornings. Being fully awake
-when I got up I had inherited from my father, my mother had more difficulties
-in the mornings. When she got back she made herself a cup of coffee and the
-sound of the machine woke my father up as well.
-
-"Good morning," he said when he saw me standing near the window, "Important day
-today. I want mine with a lump of sugar please." He got up too and went to the
-bathroom. I pushed my bed under theirs again to give us a little more space. My
-mother sat down at the table and groaned. "My God, why this early?" she said.
-
-"I just woke up," I replied, "I didn't want to wake you, but I just couldn't
-sleep anymore. I am excited and nervous at the same time. What if I don't like
-her?"
-
-"She seemed nice when we called her," my mother mumbled, "Just give me a
-minute, I need to wake up." My father walked back in and when he didn't see his
-coffee he just chuckled and said softly to me "She isn't wake yet, is she?" I
-laughed and shook my head "No, she's recovering though."
-
-"Don't talk about me as if I'm not here," my mother grumbled, "And you know
-where the machine is. I'm waking up."
-
-Two hours later I was ready to go. Everything I could take with me was packed
-up and next to the door. It was just a short walk through the park to where the
-rest of my life was about to start. It couldn't have been better for me. "Well,
-it's time to go I guess," my father said, "Are you ready mom?" She shook her
-head and I could see she was holding back her tears. "Never, but it's time,"
-she said.
-
-As we walked though the park she put her arm around me and held me tight. "Make
-us proud sweetie," she said with a tremble in her voice, "Don't mind me, this
-is your day. I never wanted this day to come but here it is. Now I understand
-how my mother felt when I went to college, I was the first to leave the house.
-And I am so happy that we don't have to do this again."
-
-My mother had wanted another child, but she got sick and all they could do was
-remove her uterus. The cancer had not responded to any medication. I still
-remember seeing her grieving over a child she never had, but to her it had as
-she had always seen herself as a mother of two. It had taken her almost a year
-to reconcile with the new reality and she became even more protective of me,
-without getting overbearing. She wasn't a helicopter-mom, not by a long shot.
-She just was very caring and dragged me to the hospital on multiple occasions
-when it wasn't needed. And I loved her for that and I fully well understood why
-she had such a difficult time with me going to college.
-
-Outside the gate there were several tables with older students sitting behind
-them. I got in line for the table with the letter D. When it was my time I said
-"Hi, I'm Laura Davis?" The girl checked her list "Davis, Davis, ah here you
-are. Laura Davis, dorm 3 room 232." She handed me a map with all the buildings
-on it. She marked the building where I had to go and gave me directions how to
-get there.
-
-"You can go to your assigned room and leave your luggage there. After you have
-to go to administration, that's here," she placed another cross on the map,
-"there they will take a photo for your student ID. Please wear this as long as
-you don't have the ID. Here is some more information about campus and some
-information about all the stores, restaurants and bars that have reduced prices
-for us students. Well, that's it. Welcome to Kingston. You may cross the line
-and say goodbye to your parents."
-
-I walked back to my parents after I had pinned the badge to my clothes. "New
-Student" it read and it felt like a badge of honor to me. I hugged my father
-and my mother who held me tightly. "I am so proud of you pumpkin," she cried,
-"I truly am and I am sure you will shine here. Call me if you need me, okay? I
-love you so much baby. Now go, go towards the rest of your life."
-
-I had tears in my eyes, leaving them was harder than I expected and with my
-nerves as tight as they could be I walked over to the gate. A security officer
-was standing there. "Wait!" he said, "Are you ready to cross the line? Are you
-ready to become an honor student of Kingston College? Are you ready to take
-this step from childhood to adulthood?"
-
-I looked at him then over to my parents. My mother nodded and my father mouthed
-"Go". I turned to the guard and said "Yes, I am ready." It was tradition at
-Kingston to drop of new students at the gate. It was also tradition to step
-over that line of red bricks in the ground. I took a deep breath and took the
-most important step in my life. Once passed the line I looked over at my
-parents, my mother was clapping and crying. My father was yowling and cheering.
-I had taken the biggest step in my life. I waved to them and slowly made my way
-over to the dorms.
-
-I marveled at the buildings I knew by heart from the photographs I had looked
-at for hours. I gasped when I saw that big oak tree in the middle of the
-square. I just couldn't believe I was actually there. The wheels of my suitcase
-rattled over the cobblestone path and it didn't take me long to find my dorm. I
-went inside, got in the elevator and searched for my room. The door was still
-open and as I walked in a girl with long red hair was already unpacking.
-
-"Oh hi," she said with a big smile, "So nice to finally meet you. I already
-picked a side, hope you don't mind."
-
-Both sides of the room were identical so I really didn't care. "No, I don't
-mind. Been here long?"
-
-"Not long, 20 minutes maybe. I wanted to wait for you so we can go have our
-photos taken together."
-
-"Thank you, but I had reckoned to go by myself."
-
-"Don't be silly, we are room mates now and it's time we get to know each other
-a little better. That's what introduction week is for, right? To get to know
-each other, campus and who knows what else."
-
-She was vibrant, outgoing and cheery. In short the total opposite of me. At
-that moment I didn't believe we would be any more than room mates. I placed my
-suitcase on the bed and by bag next to it.
-
-"I love your hair," she said, "you should wear it loose sometimes. It's just
-gorgeous. Ever thought about highlights?"
-
-I had never been that girly girl. Sure my hair was long but that was only
-because short hair didn't look right to me. Still I wore it in a bun most of
-the time and I was so used to it that I didn't even think about it in the
-mornings. "No not really," I replied, "I never really thought about it."
-
-"Well, maybe you could learn a thing or two from me as I could from you. Shall
-we go? Maybe we could get a latte on the way? I heard the coffee shop is really
-good here."
-
-Thirty minutes later we stood in line at the administration building, both a
-latte in our hands. I hadn't had one before and I really liked it. Despite all
-my reservations at first my room mate started to grow in me. Her eyes were open
-and didn't show any sign of deception, she presented herself for who she was.
-At that moment I wished I could be a little more like her, it was like she
-didn't care what other people thought of her and it was kind of refreshing.
-Normally I would just walk away and avoid her, but this time I had nowhere to
-go as we shared a room.
-
-We waited for a long time but finally it was our turn. "Ray, Marisha Ray," my
-room mate said. The woman behind the counter turned to me and I said "Davis,
-Laura Davis." The woman checked her list and in a very bored tone she said "You
-can go over there for your photo. Your ID will be ready in -- two hours. Come
-back then and collect it. Welcome to Kingston."
-
-We had our photos taken and walked back to the dorms. There was nothing else
-planned for the rest of the day but to unpack, decorate the room a little and
-explore campus. When we arrived in our room both our parents were there talking
-to each other. "Mom! Dad!" I shouted. I hadn't expected to seem them this
-soon.
-
-"What are you doing here?" Marisha asked hers.
-
-"Well, we got a letter from Kingston too. We were asked to go to the back
-entrance and they sneaked us in. Also a tradition. The reason nothing is
-planned is so we can take you to dinner or whatever you want."
-
-I looked at mine "Is that true?" My mother nodded and said "Yes sweetie, now we
-can have a proper good bye and I got to see your room. It's better than the one
-I had in college." We roamed the dorms a little and everywhere were new
-students with their families. We looked at the shared spaces where there were a
-few couches and even a television.
-
-We explored campus and found the mess hall, a small pizza place and a few other
-shops. After we had collected our IDs we went off campus and followed the
-instructions to _old town_, the historic center of Fort Dix. We found a
-beautiful small restaurant where we had the best dinner I had ever had, not
-because of the food but because of the people sitting at the table. For the
-first time I felt like this could become something good.
-
-When we walked back it was time to say goodbye for real. Marisha's parents had
-to drive home and my parents had to go back to the hotel. They needed to pack
-as they needed to leave the following morning. I hugged them both once again
-and my father slipped something in my pocket. "Don't tell you mother," he
-whispered and winked. By my mothers smile I could she knew exactly what was
-going on.
-
-I took it out and opened the envelope. "Good for a new car if you pass the
-first year." it read and had a photo of my favorite car on it. "Really!" I
-shouted and jumped for joy. Both my parents nodded and my mother said "Only
-when you pass the first year." I hugged them again and I showed it to Marisha
-she started jumping to, then stopped and turned to her parents. "See, that's
-how you treat a daughter!"
-
-Her mother burst into laughter and said "Like we haven't given you everything
-you own. I love you Mar. And remember your father and brother will bring your
-car next week." Marisha turned to me and said "It's in the shop. Not my fault,
-that pole didn't give way. It could have moved out of the way, but it didn't."
-
-I burst into laughter "Did you really hit a pole?"
-
-Marisha looked sad and said "Yeah, but as I said not my fault." Her face lit up
-and she said "Time for us to go. Bye all and it was so nice meeting you Mr and
-Mrs Davis. Come let's unpack for real." She grabbed my had and pulled me away,
-all I could say was "Bye! Nice meeting you!"
-
-The next morning I got startled when I didn't recognize where I was
-immediately. From the other side I could hear Marisha breath and clearly she
-was still sleeping. I got up, grabbed my robe from the hook on the door and put
-it on. The hallway was still empty and I made my way over to the girls
-bathroom. Even though this dorm was mixed, there were more girls than boys on
-our floor so one of the boys bathrooms was being retrofitted for girls, but
-until then we had to do with what was available.
-
-Once in the booth I could let go of a deep breath wondering what the future
-would bring. We would have a week of introductions to our new professors, our
-fellow students and the extra-curricular activities we were expected to do. As
-a first year student we were expected to do something that gave back to the
-community. Kingston was well known for it's charitable work, a tradition
-started by the founder Alexander Kingston. He was well known for all the
-charities he started in his live.
-
-Once back in our room Marisha had woken up too. "Good morning," she yawned, "I
-had a good sleep. Did you sleep well?" I just nodded and sat down on my bed.
-Marisha rose up and looked out the window. "Looks like another fine day," she
-said, "I am going to wear a dress today. Yes." She got up, grabbed her robe and
-disappeared. I didn't have problems getting up, but Marisha was just a little
-bit to cheery in the morning. I grabbed my toiletries, a towel and walked over
-to the girls shower rooms. Two of them were already in use the girls were
-chatting with each other. I will need to get used to that, I thought.
-
-I opened the farthest one and noticed there was a sign in the booth telling me
-that once I pressed the button I would get 10 minutes of hot water. "You are
-expected to vacate the showers after the ten minutes have passed." it read
-underneath. I got my shampoo ready and everything else I needed. Ten minutes
-were doable for me, I didn't shower long at home any way.
-
-As I was getting ready I heard Marisha in the next booth say "Aw, ten minutes?
-How am I going to do my hair?". A girl from one of the other booths shouted
-"Very quickly?" Marisha started to laugh and said "I guess. Well, better get
-started then." The other girl said "You can always wash your hair in the sinks.
-There is no restriction on those."
-
-When the ten minutes were over I was just about ready and put the towel around
-myself. I walked over to one of the sinks and the girl who was on the other end
-said "Hi, I am Valery. Also first year student?"
-
-I nodded and said "Hi, Laura. Nice to meet you." I started brushing my teeth as
-Valery asked "What's your major? Mine is Psychology."
-
-I took the brush out and said "Law."
-
-"Oh nice, Lilly, who's just coming out, is law too." The girl who stepped out
-just said "Hi, I'm Lilly."
-
-I held up my hand as a greeting and continued brushing. "Anyone got a blow
-dryer? I forgot mine." Lilly dug in her bag and handed her one. Through the
-noise the dryer made Valery said "I can't wait to meet our professors. Mine is
-said to be very cute. Do you have a boyfriend Laura?"
-
-I was just done brushing and rinsing my mouth. "No, never had one really."
-
-"Never had a boyfriend? That can't be true, you're so pretty."
-
-"Well, no long ones. Longest lasted a month maybe."
-
-"A month? How many did you have?"
-
-"Two."
-
-"Two? No, you're pulling my leg. Lilly do you believe Laura had just two
-boyfriends. Look at her. I wish I had her hair."
-
-Lilly looked over and said "Don't worry. I only had one, enough to know that I
-didn't like boys and I was gay. I really have to thank him for that, I guess."
-
-"Your gay?" I blurted out and immediately my face turned red, "I am so sorry,
-that came out wrong. I didn't mean it that way."
-
-Lilly laughed "I am used to it. They all think that lesbians have short hair,
-act like men and all the other stuff. No offense taken. But yes I am gay."
-
-At that moment Marisha stepped out of the booth totally naked. "I love gay
-people," she said, "and just to remind you, you can look but not touch, okay?
-Hi, I'm Marisha. First year Creative Design and Photography. Nice to meet you
-ladies."
-
-Lilly laughed and said "So sad, I like what I see." Marisha had a devilish
-smile on her face. "I like teasing lesbians," she said to me, "It's so much
-fun." That made Lilly laugh even harder.
-
-"I've seen many forms in which people accepted me, but never like this. Thank
-you Marisha, this is the best way ever." Lilly shouted.
-
-I chuckled and simply couldn't believe Marisha just walked out like that, but
-now I knew why she had done it. It was her way telling Lilly that she didn't
-care whether she was gay or not, that she simply accepted her for who she was.
-
-I was done there and was packing my stuff when Marisha said "Oh no, no, no. You
-are *not* having that bun today. Come here, I will do your hair, maybe a little
-eye-liner and some mascara. Let me help you." I was dumbfounded by it and
-watched her pull a chair closer. "Sit down," she said.
-
-She braided my hair, did my makeup and when she was finished she said. "Look at
-yourself. Isn't that better?" I hardly ever wore makeup and if I did I stopped
-at eyeliner. This was way more than that and still subtle as if I didn't have
-any one me. My hair was beautifully braided and I was just stunned by what I
-saw.
-
-"And you had just two boyfriends?" Valery laughed, "You are going to be
-swatting them off after today." I felt myself blush and didn't know how to
-respond. When I looked at myself in the mirror it just didn't feel like me,
-but I didn't want to disappoint Marisha so I just said that I loved it.
-
-
+All I can say is that I wasn't born this way and absolutely not raised this
+way, the changes were hardly noticeable and they all added up until I was where
+I am today. Not that I'm complaining, it's who I am today and I am perfectly
+fine with it. To enable our lifestyle and not be in constant fear of being
+molested we even moved to another country, which brought us more than just the
+ability to be who we truly are.
+
+We now live just outside a small town in the middle of The Netherlands where
+we were able to buy an old farm including the surrounding land. The property is
+totally surrounded by woods and we got permission to put up a 7ft fence just as
+long as it blended in with the environment. It took us a while to find someone
+who could create one that looked as natural as possible and we ultimately got
+permission from the council to put it up. Now when you walk through the woods
+you don't even see a fence until you're right on top of it, giving us total
+privacy.
+
+We totally renovated the old farmhouse and barns into the property of our
+dreams. As it is located on a very small street leading to practically nowhere
+it is also very quiet most of the time. Only traffic that really needs to be
+there or sometimes people who are just cruising use that road. And our house is
+almost 82 feet from that road, so even in front of the property we have some
+sort of privacy. We didn't get permission to put up a fence there, but that's
+okay as it now is a very beautiful garden and my pride and joy. I never would
+have thought gardening would give me so much satisfaction.
+
+There were a few more barns on the property, which mostly were torn down or
+renovated to guest quarters and an office for us. It's nice not to have to
+work in the house itself, to have a detached building for that purpose. It
+makes us feel like we still are going to work instead of just moving to another
+room. "I'm off to work," is now one of our most favorite things to do. For fun
+we even listen to the traffic report and if it's bad we jokingly say "Better
+get going then."
+
+One day my husband just stood in the middle of our property. When I was about
+to ask him why he called me saying "Oh man, traffic is a mess. I think I going
+to be late. Oh wait, we started moving again. I love you. Bye." I burst into
+laughter and shook my head. He turned his head to me, stuck his tongue out and
+disappeared into the office.
+
+I do have to say moving to The Netherlands was one of the best decisions we
+ever made. Not only is it very beautiful here, it's also safe and well
+organized. Doing what I am doing it's so nice to know that our medical bills
+are covered and we will never see bills we can't pay. Medical debt isn't a
+thing here. And don't get me started about guns. I never knew what freedom
+truly meant until we moved here. In the US I was always on the lookout where I
+could hide in case of a shooter, that's not necessary here because it simply
+doesn't happen.
+
+We experienced some sort of PTSD the first few months we lived here and some
+say we still do. And maybe they're right, I sometimes catch myself flinching
+whenever there is a loud bang. I like to believe it's gotten a lot better
+though.
+
+We've been living here for over six years now and we've decided to never go
+back. Sure it's not easy leaving friends and family behind, but the truth of
+the matter is that when they came over for a visit they too experienced the
+same things we did. It made us chuckle when we sat outside a small cafe in the
+center of town our friends ducked when a car misfired. "Americans?" the people
+at the next table asked. We just nodded and said "Yes. We are too, but we live
+here now."
+
+But all of that is about how it is now. Before I tell more about that I have
+to tell you how it all began. That's important for you to understand 
+
+a. Why we do what we do.
+b. Why we moved to another country.
+
+I simply can't explain it any other way and trust me I tried. This isn't the
+first draft of this story, I've tried many other ways to get it onto paper, or
+my computer that is. Could I have done a better job? I am sure I could have,
+but I'm not a professional writer and this is my best attempt on writing it all
+down. I've read quite a few stories from couples enjoying this lifestyle and I
+wanted to share ours.
+
+To protect the identities of everyone involved, including ours, I have changed
+names and locations where it all took place. In some cases I've used names that
+don't even exist, the college we went to for example. But I promise the rest of
+it is all true, the events that took place did happen as I will write them
+down.
+
+So let's start at the beginning.
+
+## Chapter Two
+I was so nervous the day I got to hear whether I had graduated or not. I waited
+for hours for the phone to ring and when it finally did my heart skipped a
+beat. "Laura?" the voice of my favorite teacher said on the other side of he
+line, "I've got good news --" That's all I needed to hear, I started screaming,
+yelling, jumping and when I calmed down and went back to the phone I could hear
+her laughing. "Laura? Are you there?"
+
+"Yes Miss Johnson, I am here."
+
+"Good. Yes, you passed. But did you really think there was a chance you
+didn't?"
+
+"Always Miss, always. Thank you so much for calling."
+
+"No worries, have a nice day now and see you at graduation." she said.
+
+I threw down the phone and jumped into my mothers arms. "I passed!" I shouted,
+"I passed!" We both were happy and called my father as soon as we both calmed
+down. I took a deep breath, dialed the number and waited for him to pick up.
+
+"Did they call?" he somehow knew it was us.
+
+"Yes, they did." I said with a trembling voice. My mother looked at me with a
+face saying 'what are you doing?'.
+
+"Oh baby, and what did they say?"
+
+"Well, Miss Johnson called." I kept up the tremble as if I was about to start
+crying, "And she was very nice and all. But -- I PASSED! Dad, I am graduating!
+I'm going to college!"
+
+"I knew it!" he said, "I just knew it! Oh sweetie, I'm coming home early this
+afternoon, we are going to celebrate." During dinner that evening he couldn't
+stop telling everybody that I passed, he was so proud of me. Now, it's
+important for you to understand that we weren't rich people, nor were we poor.
+My dad had to work hard to get where he was and me going to college was the
+crown on his achievement. I was an only child as my mother wasn't able to have
+children after me. The fact that I even existed was kind of a miracle for them.
+
+That should explain why the were so protective of me, not overbearing but still
+protective. I was raised to be a good girl on old fashioned values, but still
+strong and independent too. On top of that we lived in a very small town where
+almost everybody knew each other. Therefor being different was frowned upon and
+as I didn't know any different I fell into that mold too.
+
+Going to college was eye opening in that aspect. Suddenly I was confronted with
+people who had different thoughts and ideals. At first I was defensive as I
+wanted to preserve the old-fashioned way of life. What was so wrong with
+getting married and start a family? It wasn't like I condemned sex before
+marriage, I just chose otherwise.
+
+That all changed when my room mate decided to change colleges, she wanted to
+live closer to home and not, like me, be on the other side of the country.
+After being alone for a few months I got assigned a new room mate as mine was
+the only room available for her. At first we didn't get along that well, she
+was the total opposite of me. Where I was an introvert, and still am, she was
+an extrovert. And she had her tongue on her sleeve, she just said how she felt
+whether you liked it or not.
+
+Slowly I started to respect her for that, she simply didn't care what anyone
+thought. "Why should I?", she once told me, "If I had to take what everyone
+thinks about me, I wouldn't get anything done. There's always someone who is
+offended or disagrees with whatever it is you do, wear or say. As long as you
+think it's right for you, why should you care about what anybody thinks. It's
+your life, not theirs."
+
+"But aren't you scared you are offending someone?" I asked her.
+
+"As long as I don't care about them, no. I care what the people close to me
+think and those are the ones I listen to. Not some random person on the street
+or the internet. God, that would make life so hard."
+
+Those words made me rethink some thing I had been taught and I had to conclude
+she was right. In a small town it is doable to adhere to unwritten rules, in a
+city the size of where my college was not so much. There were millions of
+people living there and there were just as many opinions. How could I take all
+of those into account? I simply couldn't. So why should I change anything I
+wanted to do or wear? If I wanted to wear a dress with pentagrams all over it,
+why couldn't I? I wasn't religious and if you didn't like it you could always
+look the other way.
+
+Over the years I was in college the way I dressed changed, from rather
+conservative and modest to outspoken and the latest fashion. I toned it down
+whenever I went back home, but still it was quite different from what people
+were used to. My mother loved it though, she thought I looked beautiful.
+
+In the third year of college more had changed, my thoughts on marriage. It no
+longer was the ultimate goal for me. Not that I didn't want to get married
+anymore, it just wasn't a goal anymore. Being single, moving in together or
+getting married, it all was fine with me. That also meant my ideas about sex
+had changed. I can still remember how I felt after the first one-night-stand, I
+was elated and felt freed. Released from the shackles I had put on myself.
+
+I went through a period where I had multiple *encounters* a week. Even Marisha,
+my room mate, thought I went off the reservation during that time. I just
+couldn't get enough of it. A night I had some sort of regret after was when I
+went home with a couple of boys and spent the night as their toy. That was the
+moment I knew I had gone too far and I needed to reel it back in. Luckily those
+weren't college boys and the only one who knew was Marisha.
+
+During my last year I met Travis, now my husband. We started dating and because
+he had gone through some relationships before me, he wanted to take it slow.
+That might be the main reason why when he proposed I said yes. We had taken our
+time to get to know each other, to trust each other and more importantly to be
+totally honest with each other. He didn't judge me when I told him about my
+*promiscuous* period. "That's a phase you had to go through", he said when I
+had told him, "I do believe you when you tell me that's over now."
+
+After we got married we moved into a small apartment downtown. With only one
+bedroom and an open kitchen it was our little kingdom, our slice of heaven. He
+got a nice job and I worked mostly from home for a company that published
+books for children. As an English major that was the only job I could land,
+besides teaching. Editing books wasn't my favorite thing to do, but it was a
+job and someone had to do it.
+
+At first working from home was ideal for me, not having to spend hours in a day
+stuck in traffic was my idea of the ideal job. But as soon as the runt set it,
+it became rather isolating. I only knew my colleagues from the screen and I
+started to miss the physical interaction of being in an office. Besides that
+the work I was doing wasn't why I had gone to college and get a business
+degree. I had always dreamed of either working for a large company as some sort
+of manager or to start my own little company.
+
+It didn't take me long, maybe three years, to conclude this wasn't it for me
+and after talking to Travis I decided to quit. I simply had enough. By that
+time Travis had been promoted twice and we moved into a more luxury apartment
+just outside of the city center. I was a housewife for a while until that
+started to bore me too. The apartment wasn't that big and cleaning it didn't
+take all day. Nor did the laundry and anything else you do. To make a long
+story short I started to follow my dream of having my own business.
+
+As it was the easiest way I started selling clothes online, mostly women's
+clothing. I bought up stock from failing businesses and sold them for a small
+profit online. There were many times our apartment was filled with boxes and
+boxes of goods. I was packing and sending those out for days on end, until I
+was finally convinced of renting a space somewhere. It so happened that one day
+I got hold off clothing meant for the *adult* market. I simply couldn't believe
+how quick those went out the door again.
+
+I started buying and selling more of those until I finally stopped selling
+*regular* clothes all together. I sold everything, from lingerie to latex
+suits, even some BDSM related things like masks, gags and collars. Then I
+started selling toys too.
+
+As I couldn't do this through the site I had been using I hired a company to
+design and host my new website. I also changed the name of the company to
+*Sexy4Less*. And it skyrocketed from there. I had to move offices as we needed
+more space for our stock and more space to package it all, I even had to buy
+two vans so we could ship everything. Suddenly I was the CEO of a small
+company and instead of selling second hand I made deals with companies
+overseas. All in all the main goal was to be cheaper than anyone else, a goal
+we succeeded in most of the time.
+
+Setting up the company took most of my time and as Travis was working long
+hours too we started to drift apart. To counter this we implemented date-night,
+every Friday we went to dinner and after to a movie or a bar. As Travis never
+had been the dancing type I would dance with random men who were there. At
+first I kept my distance, but at some point I allowed them to put their arms
+around me for a slow dance. At no point Travis showed signs of jealousy, he
+seemed to enjoy it rather.
+
+One evening when we drove home he bluntly asked me "Did you want to kiss him?"
+
+I felt a little offended by that question and responded "Why would you even ask
+that?"
+
+"Just by the way you looked at him. Did you find him attractive?"
+
+"What?! No, I didn't find him attractive. He was a good dancer and it was a
+beautiful song, that's all."
+
+"If you say so." he replied and the discussion was over. But it started me
+thinking whether Travis had been right. I started to question myself because if
+I was honest with myself I had felt attracted to that man. I just hadn't
+realized until Travis brought it up. At that moment I was never going to admit
+that to him as it was just wrong. It wasn't they way I was raised and it went
+against everything I thought was right.
+
+For the rest of the week my business took my mind of things only to return with
+a vengeance when I stopped working that Friday. As I sat at home I couldn't
+stop thinking about it. Subconsciously I dressed a little nicer that evening.
+When I got out of the bedroom Travis even noticed and said "Wow, are you going
+to seduce someone tonight?"
+
+"Just the man I love," I replied with a smile.
+
+After having dinner at our favorite restaurant we ended up in a club. It had
+just opened and as Travis knew the owner we had been invited to come that
+evening. The music was thumping and I could feel the bass in my stomach. The
+dance floor was filled with people. To the right was a double door leading to
+another bar area where the music was less loud, but the dance floor was the
+main one. Travis went over to the bar to order us something to drink.
+
+I was glad we had decided to take a taxi when we left home. We just stood there
+for a moment taking it all in. "It's very beautiful," I said, "I like it here."
+Travis nodded and took a sip from his beer. I had a white wine in my hands and
+just looked around, slightly moving to the music.
+
+My dress was rather low cut, in the back as well as in the front showing some
+of my boobs. What Body-Glue isn't good for, I thought as I was slightly
+dancing. I had to glue the front as it was rather loose and of course I didn't
+want it to slide. The skirt itself was tight around my hips and ass. On my feet
+I work 6 inch heels, which made my legs look beautiful I thought and by the
+reaction men gave me I was right in thinking that. My hair was in a ponytail
+with two strands on both sides of my face, two long earrings completed the
+look.
+
+Dressing like this always made me feel good about myself and more confident. As
+we were standing there, every now and again talking loud to beat the volume of
+the music a man came walking up to us. I took a sip from my wine and we started
+talking.
+
+"Hi, you're looking beautiful," the man said.
+
+"And who are you?" I replied.
+
+Travis interrupted "That's Shawn, he owns the place."
+
+"Ah, nice to meet you. Do you normally tell women they are beautiful and does
+it ever work?" I said to Shawn.
+
+"Well, I don't know. The first time I said it. So I would have to ask you
+whether it worked."
+
+"I don't know," I replied, "Jury is not out yet."
+
+"Ah, well then we will have to wait a little longer." He turned to Travis, "How
+are you doing, Travis? Still working at the same place?"
+
+"Yes, and thank you for the invite. There's quite the queue outside and it was
+nice to be able to skip it."
+
+"Anything for an old friend. Did he tell you we went to college together?" he
+then said to me.
+
+"Is that so? And which college would that be?" I replied.
+
+"Oh Kingston," he said with sort of an air over him.
+
+"Kingston? Than we went to the same college too. That's were we met, Travis and
+I. So I'm wondering why didn't I see you there as Travis and I were in the same
+year and I'm sure I would have seen you at least once in those four years."
+
+"Oh, but you did. I was a little fatter back then, glasses and longer hair."
+
+"You were that Shawn?"
+
+"Yes, I am not afraid to admit it. I started exercising after college, eating
+better and now here I am."
+
+"You cleaned up nicely," I laughed. By that time my glass was empty and Shawn
+offered to get us another round.
+
+"If you want to dance with him, go ahead," Travis whispered in my ear. I just
+looked at him a little confused. It wasn't what he said it was more the way he
+said it. Sure Shawn was rather handsome now and his body looked nice, above all
+he smelled great. Shawn returned with our drinks and as he handed me my wine he
+had this look on his face. I could see his eyes going down to my chest and it
+felt somehow nice to see him do it.
+
+When he looked up again I just smiled at him and I might even have winked. I
+don't really remember, but according to Travis I did. I finished my drink and
+that's when Shawn asked me to dance, he held out his hand and I put mine in
+his. He guided me to the floor where we danced. The DJ was playing some popular
+music with heavy beats, this was when dance was popular. I had a lot of fun and
+was so happy that I had used glue to keep my top to where it was supposed to
+be.
+
+Song after song was played and slowly the DJ changed into slower songs ending
+with a ballad. Shawn put his arms around me and I put mine over his shoulders,
+he was bigger than me but I didn't feel like I had to reach. During the song we
+moved further to the middle of the dance floor. To a point where I couldn't see
+Travis anymore. His hand went up to my naked back and feeling him touch me
+there sent all kinds of sensations through my body. I was shocked by what I
+felt, but didn't move away. His hand went up and down my back giving me
+goosebumps all over.
+
+He bent his head forward and just as our lips were about to touch, I turned my
+head away. "No", I panted, "I can't do this." Pushing his arms away I took a
+few steps back, looked at him for a moment and walked away. I saw Travis
+sitting at the bar and simply said "We have to go." He asked me why and I
+repeated what I had said. He got up, took my arm and we left.
+
+At the house I told him what had happened but left out how I felt. He didn't
+get angry or jealous, not at all. It was almost the opposite, he looked like he
+enjoyed me talking about it. I was angry at first, at myself, at Travis. How
+could he think of me like that?
+
+"Tell me why you dressed the way you did?" He asked after we were quiet for a
+while.
+
+"Because I like it. It's a nice dress and it makes me look good." I replied
+
+"That it is and it does make you look good. But -- you could have worn that new
+dress you bought the other day. You know, the light one. But you didn't, you
+chose this one. Why?"
+
+"Oh, I don't know. I didn't feel like light salmon colors."
+
+"Or wasn't it sexy enough for you? I mean this is all open in front and in the
+back. You've only worn this one once before, when we went to the opening of
+that musical, remember?"
+
+"Yes, Les Miserables. A friend worked on the crew and she had gotten some
+tickets to spare. She knew how much I wanted to see it and she gave them to
+us. And it's called a premiere dear, not an opening."
+
+"Whatever. All the women there were dressed like this, so why did you choose to
+wear it tonight? It wasn't special and I would loved to have seen you in that
+new one. To be perfectly honest, I don't really care what you wear, you look
+beautiful in anything to me. So why did you choose this dress?"
+
+I refused to talk about it any longer, this was getting crazy. Was he really
+suggesting I put it on to seduce someone? To see men gawk at me as if I was
+nothing more than a piece of meat? I felt betrayed, hurt and dirty.
+
+I ran upstairs to our bedroom, took off that dress and changed into my
+sweatshirt and a pair of yoga pants. I sat at my vanity taking out my earrings
+and was about to start removing my makeup. I was so near crying than I almost
+messed up and cleaned my face with nail polish remover. I put my head on my
+arms and started to cry. That's when Travis walked in.
+
+"Don't cry," he said softly, "Pleas don't cry. I wasn't trying to hurt you."
+
+"You did," I sobbed, "You did. How can you think that off me? I am a loyal
+wife, we took our vows and that means something to me."
+
+"I know and it means a lot to me too. But Laura, you have to be honest with
+yourself. It's the little things I see and it all leads op to one thing."
+
+"And that is?"
+
+"You like the attention you get. The first time I noticed I thought I had seen
+it wrong. Then I noticed it again and again. I didn't say anything because I
+don't care. I know that in the end you will be next to me in that bed." with
+his head he gestured towards our bed. He was quiet for a moment before he said
+"I like it when you unknowingly flirt with a guy. Flinging your hair, the
+little gestures with your head, putting an extra bounce in your step, arcing
+your back just a little more and most of all swaying your hips when you know
+someone is walking behind us. It's those little things."
+
+I just couldn't believe him. He was basically saying that I was flirting with
+men right in front of him. For what? To make him jealous? I already knew he
+wasn't the jealous type. He had proven that to me on multiple occasions. So why
+then? Why would I do such a thing?
+
+"So tell me," Travis said softly again, "Why did we have to leave all of a
+sudden? You were on the dance floor and I couldn't see you anymore. So what
+happened?"
+
+"We were dancing to that slow song, he had his arms around me and then tried to
+kiss me. I pushed him away and that was it. I wanted to leave."
+
+"But the question is, and be honest now, did you want to kiss him?"
+
+I felt a shock through my system. I felt myself turning white as if I was
+caught doing something bad. I did want to kiss him, there was no other way
+about it. I bowed my head and whispered "Maybe."
+
+"Sorry, I didn't hear that," Travis said, "Did you say maybe?"
+
+"I don't know," I huffed. Travis poked my arm a little to coach it out of me
+then I just blurted it out "Yes, I wanted to kiss him. Your wife wanted to kiss
+another man. There you have it. Are you happy now?"
+
+"Yes, you are being honest now. Not just to me, but to yourself too."
+
+I just stared at him and felt deflated, defeated and just empty. The secret was
+out it felt like. And there he was, on his knees next to me: my loving husband
+with his kind eyes looking at me. No sign of anger or jealousy, but warm eyes
+and a slight smile as if to say I hadn't done anything wrong in his eyes. I put
+my arms around him and started to cry again.
+
+"I am so sorry," I cried, "I am so sorry. I won't ever do it again. I will not
+dance with anyone ever again. I promise. I love you so much and I never want to
+hurt you."
+
+"I love you too, Laura. And you didn't hurt me, not even for a little bit.
+Seeing you dance with another man makes me feel proud. Whenever you dance with
+someone I thing *you get this dance man, but she's coming home with me*. It
+makes me feel so proud that I can call you my wife. It makes me love you even
+more."
+
+"Do you mean that?" I said through my tears.
+
+He nodded and said "Yes, I do. I want to give you all the space to be you, the
+woman I fell in love with. The woman who doesn't care what other people think
+and I am so grateful to Marisha that she taught you that."
+
+"You are?"
+
+"Oh yes. And I've heard all the stories about you in college. They told me you
+were easy and suddenly that stopped. I've never asked you why because I felt
+like you would tell me when you where ready and I still feel that way. I don't
+care about your past, what you did before we met. I care about our past, our
+current and our future, the ones we share. All I want is for you to be happy,
+that's the most important thing for me."
+
+I felt a wave, a tsunami of love coming my way. He had never made me *feel* his
+love like he did at that moment. Of course he had heard about my *wild* period,
+we were in the same year in college. And we didn't go to the biggest of them
+and thus it would have been strange if he hadn't heard. And still he wanted to
+meet me, get to know me, take it slow. Right after I stopped being that wild
+girl I had been worried nobody would want to be with me just for me, Travis
+proved me wrong. That was one of the many things I fell for.
+
+"It was a Saturday and I wanted to go out, but Marisha had to study. So I went
+alone, to Malone's. You know it, that one in Old Town. Well, I was dancing,
+having fun and some guy chatted me up. We kissed, made out and then he invited
+me over to his place. It wasn't that far and I felt a little special." I looked
+at Travis and noticed he seemed to like hearing my story. Past boyfriends
+didn't want to hear about the ones who went before them.
+
+I took his hand and we sat down on the bed. I looked him in the eyes and said
+"Well, we reach his apartment and when he opened the door there were about five
+more guys inside. They handed me a bottle of vodka and I took a sip and another
+and another. I started to kiss that guy from the bar again and he started to
+undress me. I didn't protest and even helped him with my bra. We ended up in
+the bed and remember the others were watching us. One might even have been
+recording it, I don't really remember."
+
+"Keep going," Travis said, "Tell me all the details. Get it out your system."
+
+"I haven't told anyone this. Not a soul. That being recorded might have been in
+my mind because I never come across any video of it at all, never. But I'm
+still scared it will pop up somewhere. Back to the story. As I was saying we
+were on that bed, I was fully naked by now, bent over and --"
+
+"Go on say it. Tell me everything."
+
+"I was -- I had his -- You know."
+
+"No, tell me you had is what?"
+
+"I had his penis in my mouth, alright? I was sucking his cock. I was bent over
+with my ass towards the guys watching, the could see everything and I didn't
+care at that moment. I lost myself and before I realized what was happening I
+had five cocks around me and one inside me. One of them bent me over and pushed
+it up my ass. I can still feel the pain. I screamed that he was hurting me, but
+I just couldn't stop. I had sex with all of them, all night long. They came
+everywhere, all over my body, inside my pussy and my ass. I was more than happy
+to be their toy that night. When I woke up I felt dirty, used and taken
+advantage off. I had crossed a line I wasn't ready for. So I got dressed and
+got the heck out of there. Hours later I learned they were groomers, getting
+girls ready for prostitution and this had been the initiation night. I had been
+lucky to get out of there. Maybe because I was willing they didn't feel the
+need to drug me or lock the door. As I said I had been extremely lucky. Weeks
+later they all were arrested and 14 girls were rescued. They had been locked up
+in the basement of that building and nobody even knew they were there."
+
+"I think I read about that. Yes, I remember that. It was awful."
+
+"Yes, that's what made me realize what I was doing. I was selling myself short
+and I knew if I continued with what I was doing it could end up real bad. So I
+stopped. Maybe it helped that I had done enough of it. Maybe it was some sort
+of catching up. Before I went to college I truly believed in saving myself for
+marriage. Until then I had never been with a boy before. But talking to Marisha
+made me change my mind and I am still grateful. Everything that happened after
+wasn't here fault. She even did her best to make me stop. She really did, but
+the cork was out and once I started to like it, I *really* liked it."
+
+Travis snickered and said "You can say that again. So tell me, who was the one
+who got to get your virginity?"
+
+"Oh, that was Angelo. It all went so natural. We were in his room because his
+room mate was out of town. We kissed, made out and I told him I was a virgin.
+He was so gentle and took his time with me. I was so nervous but I felt that I
+was ready. Then all of a sudden it really happened. He got on top of me and I
+was so scared. But again he took is time, slowly stretching me before he pushed
+on. I can feel the sharp pain as I am thinking about it. When he was inside he
+just stayed there for a minute or two so I could adjust. Then he started to
+move, slide in and out ever so slow. The pain was replaced with pleasure and I
+placed my hands on his hips, I curled my legs around him and he started to move
+faster and faster. I came before I knew it. When it was over he had come on my
+belly and I felt like a real woman for the first time in my life. No longer a
+girl, no longer a virgin, a real woman."
+
+"What happened after?"
+
+"Well, we saw the blood on the sheets and I got scared again. We looked it up
+in the books of his room mate, a medical student, and we learned that it was
+normal for a woman to bleed a little at the first time. We put the book back
+and I pushed him on the bed. I got on top of him and took his half hard penis
+inside me again. I felt him getting hard inside me and it made me so horny. I
+had broken my own vow and I wanted more. I wanted to go all the way and when he
+was about to come again I pushed myself down on him, forcing him to come inside
+me. I wanted it all, I needed it all. The weeks after were the most scary in my
+life, yes I was on birth control but I knew all too well that it wasn't 100%
+guaranteed. So when I finally got my period I was so happy and elated. Marisha
+and I bought a jumbo package of condoms and I must have been to one that used
+them all, or at least most of them. I never did it without, never. Until that
+night I told you about. As I said I lost myself, didn't really know what I was
+doing. It just went from one thing to the other."
+
+"Wow, that's quite the story," Travis said, "So Angelo kissed you. Like this?"
+
+He kissed me and I nodded. "And like this," I replied and kissed him. Slowly we
+reenacted my first time. Ever move was commented with a "like this" "Then he
+got on top of me and I felt his cock against my vulva, he kept it there for a
+while slowly going up and down my labia, just like that yes." When Travis
+slowly pushed forward I let go of a little shriek, just like I did back then.
+It was the best feeling in the world I had, I was telling my husband how I lost
+my virginity in all it's details and he acted them out with me. It seemed to
+turn him on a lot and I am sure he got harder than he had ever been before. And
+when he finally exploded over my belly I am so sure I hadn't seen him come so
+hard before.
+
+Afterwards we laughed and giggled, kissed and made out. We feel asleep in each
+others arms and I felt more connected to him than I had ever felt before. He
+was the one I had no more secrets for, he knew them all even the one of one of
+the worst nights in my life, the one I had been so lucky to have escaped from.
+
+## Chapter Three
