@@ -1298,18 +1298,318 @@ We unpacked, settled in and Travis got himself a beer from the fridge. "It's
 all inclusive, right?" he said with a smile. I shook my head and said "I'm
 gonna freshen up. Maybe we can walk around a little, explore the hotel."
 
-When I was done I stepped out of the bathroom wearing a loose summer dress. As
-Travis was showering I did some light makeup and put on my hat and sunglasses.
-When Travis walked out he laughed. "Well, if we are going to be tourists," I
-said, "Better look the part." A few minutes later we went down to the lobby and
-turned right. We entered a hall with some shops and a spa. "Oh, I know what I'm
-doing tomorrow," I cheered.
+After exploring the hotel and the immediate surroundings we ended up in the bar
+to get a drink. We sat at the bar, just chatting and having a good time. "I
+think I might go to the spa tomorrow. Just some pampering, maybe get a facial,"
+I said, "and I really need to get my nails done."
 
-We walked on and entered a very beautiful patio overlooking the ocean. To our
-left was the swimming pool with a lot of people in it. To our left was the big
-restaurant. "I'm a little hungry," Travis said, "are you?" I could always eat
-something so we went inside and passed by the most delicious looking dinners. I
-got myself a salad and some bread, Travis chose a bigger dinner. We handed our
-pass to the girl at the register and we sat down at one of the tables outside.
+"If you are doing that, I will check out the golf course. It's been a while
+since I've played," Travis replied. He excused himself to go to the men's room,
+leaving me to enjoy my wine. I sat there for a few minutes when a man wearing a
+nice shirt walked up to me. "Aren't you Laura, that model?" he asked. Now I've
+never been good with these sort of things, but it came with the territory.And I
+smiled and told him it was me. "Oh my God, they are never going to believe me.
+Can I take a picture with you? Just so I can prove it really was you." I said
+he could and as he held up his phone his face came eerily close and he had his
+arm around my waist. He thanked me and tried to kiss me, but I turned my face
+just in time.
 
-"It's so beautiful here," I said as I took my first bite.
+"No kissing," I said, "Please let me be, I'm here on our second honeymoon."
+
+"Honeymoon? I didn't think you were married."
+
+"Well, I am and he's coming back soon."
+
+"Oh now Laura, don't be like that. We're all here having a good time. Now come
+on, give me a smooch. Girls like you like that, don't they?"
+
+"Leave the woman alone," a deep voice said, "She just asked you to let her be.
+Now go, you're clearly drunk and not thinking straight. Talking to a lady like
+that. Go!"
+
+The man cleared off and I looked over to my right. A big dark man stood next to
+me, his face had no expression. He just stared at the drunk guy and watched him
+walk off. "I am so sorry for that," he said to me, "I don't know why people
+think just because you're famous you are public property."
+
+"Oh, I'm not famous," I replied, "Just well known maybe."
+
+"My name is Kian," he said, "Hotel security. If you need anything, just ask and
+I will see what we can do for you."
+
+"Thank you," I replied, "But I'm okay. There are always people like that."
+
+"But there shouldn't be. I always say what if that was your sister or your
+mother, would you still act like that? I think not."
+
+"Well, thanks again Kian. I won't disturb you much longer, you will have more
+important jobs to do."
+
+"Oh, I'm off duty, but he doesn't have to know that. I just sat down for a
+drink before I go home. Plus I like to know everything is good before I go."
+
+"Dedicated. I like that in man." I replied with a smile. In my thoughts I was
+like questioning if I was flirting with him. Asking myself if Travis was right.
+
+"Ah," he chuckled, "not really, just thirsty."
+
+I laughed and flicked my hair. 'Oh my God,' I thought, 'I really am flirting
+with him' I turned a bit more to him, arced my back a little more and said
+"Well, you want another? Or is there someone waiting?"
+
+"No, there's nobody waiting," he replied, "and I drink for free so I wouldn't
+want to burden you."
+
+"Oh, in that case I would like another wine please" I chuckled.
+
+He looked at me and said "Sorry, that only goes for personnel. I'm sure you
+understand."
+
+I prowled my lips "Well, bummer. Oh well, I can order myself." The barman
+brought me another wine and swiped my card. He placed another beer in front of
+Kian and I pulled down the front of my dress a little more. "Wow, you really
+are thirsty. Don't you have to drive home?"
+
+"Nah, I live just outside the property, about a mile from here. I like to walk
+after I finished working."
+
+"Wow, nice location. With the ocean and all, it's so beautiful."
+
+"Yes, yes it is. My parents bought the house when they were young and now I
+live there. They passed away a few years back."
+
+"Oh, I am so sorry to hear that."
+
+"It's okay, they were old and had worked hard all their lives to provide for me
+and my three brothers and sisters. When my father became ill and passed away,
+my mother's heart was broken. She passed not long after. I like to believe they
+are together again, in heaven."
+
+"That's a nice thought," I replied, "I hope so too. They must love each other
+very much."
+
+"They did, but let's talk about nicer things. Do you like it here?"
+
+"What's not to like? It's all so beautiful."
+
+"Good answer," he said as he stood up took my hand and kissed it, "It was a
+pleasure, ma'am. I need to go. Have a pleasant evening." As he walked off I
+followed him with my eyes only to be startled when suddenly Travis said
+"Flirting again?" I slapped his arm and said "No!" Travis laughed and ordered
+another beer.
+
+The next day I got up early and went down to the spa. I ordered a massage, a
+facial and wanted my hair and nails done. I gave them our card and they swiped
+it. When I came out almost five hours later I felt like a new woman, my nails
+were just perfect, I felt relaxed and the cleansing had been rough but nice. I
+texted Travis and he answered he was on hole 12 of 18. He would be a while.
+"I'll be at the pool," I answered back.
+
+I went up to our room, put on a bikini and a warp around skirt, grabbed my
+sunhat and sunglasses. On my way to the pool I bought a bottle of sunscreen and
+made my way to the pool. It was already crowded and I found a spot a little out
+of the way. I just wanted to get sum sun.
+
+As I prepared to lay down a girl from the resort came by and handed me a towel.
+I thanked her and spread it over the sun lounger. I sat down and began to smear
+sun lotion on my legs. As I did so I could see a man looking at me and it did
+make me giggle a little. I continued applying sunscreen to my belly and arms
+and laid down just a tad sexier than I would normally do. Just before my head
+hit the top of the lounger I took off my hat and sunglasses.
+
+After about 20 minutes or so I heard a voice say "Do you want me to do your
+back?" I opened my eyes and it was the man that had been ogling me. I told him
+I was alright and he said "Oh, but you can't just tan your front side, that
+will be horrible."
+
+I knew he was right and with a sigh I told him the bottle was in the bag and I
+turned over. The cold of the liquid almost made me shriek. Then his hands
+started to touch me, he massaged it in really good and it felt so nice. He kept
+from touching my hips and just did my back and shoulders. He poured some more
+sunscreen and without warning he slipped under my bikini strap. As he kept
+massaging he slowly went more and more to my sides and the top of his fingers
+touched the sides of my boobs. I should have protested, but I didn't. The
+longer it went on the bolder he got and in the end I might have raised my upper
+body a little.
+
+Suddenly he stopped and when I looked up he was gone, I looked around and saw
+him walking towards the hotel. I laid down again and stayed there for another
+twenty minutes or so. I almost fell asleep when I heard Travis say "How was
+your pampering?" I turned my head towards him and he was laying next to me.
+
+"It was so nice," I replied, "I had a massage, a cleansing and look at my
+nails. Aren't they perfect?"
+
+"They are beautiful, honey."
+
+"How was golfing?"
+
+"I think I forgot how boring it is. But it was okay, talked to some other
+people who are staying here. You might have seen their wives or girlfriends,
+they all were at the spa with you. We were just an bunch of lonely men with
+nothing better to do."
+
+I chuckled "Aw, I am so sorry baby. I won't do it again, well maybe next week."
+
+"I was thinking," he said, "We could explore the island a little this
+afternoon. Let's get some lunch first and then just go somewhere."
+
+"That's a good idea. I would love that."
+
+We got some lunch, changed and waited for the valet to bring our rented car
+around. We went to the Bob Marley Museum, saw the best beaches in the world and
+just drove around. In a small shop we got ourselves something to drink and
+asked the woman running it what she would recommend us.
+
+"Oh, you should did you go to Reach Falls already? Or the Blue Mountains. Those are very nice to see." she said.
+
+"Thank you, we will do that, thank you so much."
+
+We cruised around some more and took in all the sights. Reach Falls was just
+amazing. On our way back we stopped at a roadside diner for some real Jamaican
+food. Behind the counter was a real Rastafarian, with dread-locks and all. He
+had a big smile and was happy to feed us.
+
+As the day progressed we finally sat down at a local bar just a few miles from
+the resort. Sure we had everything we needed there, but we liked to take in the
+local customs too. It was not that we would be back there any time soon and we
+really wanted to see the island too. I just can't understand people who say
+they went somewhere and all they saw was the hotel.
+
+When we finally returned to the hotel it was around 8 in the evening. We went
+up to our room, showered, put on some fresh clothes and made it down to the bar
+just before 9. This time we sat down at a table and I smiled when I saw Kian
+walking around. This time he wore his hotel uniform and stopped to talk to us a
+little. "This is Kian," I said, "the man who saved me last night."
+
+"Ah, it was nothing," Kian chuckled, "Just another drunk who thinks he can do
+anything he wants to."
+
+"Well, you have my gratitude sir," Travis chuckled.
+
+From the corner of my eye I saw the man who did my back at the pool and again
+he was looking at me. I wore a tight shirt and arced my back. "What am I
+doing?" I thought and sat normally again. The waiters started removing tables
+and chairs, clearing the dance floor. The music was turned up a little and
+people started dancing.
+
+Automatically I started to move too and just looked at the people on the dance
+floor. Kian stood to the side and was watching for anything that needed his
+assistance. I excused myself and walked straight passed him, arcing my back as
+I got nearer. In the stall I couldn't believe what I was doing and just before
+I wanted to pull my panties up, I took them off and put them in my purse.
+
+When I sat down again I made sure Kian could see me and when he did I spread my
+legs a little. By his reaction I could see that he had noticed and quickly
+turned his head. I slightly smiled not believing that I had just done what I
+did. The table had blocked Travis' view and I didn't tell him anything.
+
+An hour of three later we went back to our room and just as I wanted to get
+ready for bed there was a knock on the door. Travis opened the door. "Hi, what
+can we do for you?"
+
+"Well," Kian said, "I saw something earlier that I really need to discus. I
+didn't want to bring it up officially, but I'm off duty now and it bothers me."
+
+"Come on in," Travis said, "What's up?"
+
+"I feel really embarrassed to tell you this sir, but your wife flashed me
+earlier tonight and that's strictly against hotel policy."
+
+"She did? Really?"
+
+"Yes sir. I am sorry to tell you this, but as I said I didn't want to do this
+while I was on duty."
+
+"I understand," Travis said with a smirk on his face. He looked at me with a
+strange look on his face. "Well, I might want to know what she flashed."
+
+I was sitting on a chair and slowly spread my legs again. Travis noticed now
+too and raised his eyebrows. "She did that now, did she?"
+
+"Yes sir," Kian replied, "And I can't --"
+
+"Did you like what you saw?" Travis interrupted him.
+
+"That's not the point --"
+
+"Would you like to see it again?"
+
+"Sir --"
+
+"You would? Well, come closer then."
+
+Kian looked at him confused and said "But sir, this is your wife?"
+
+"She is. But she's not my property, now is she? If she wants to do this, who am
+I to say no."
+
+I spread my legs a little wide, still not believing I was actually doing
+this. But I had a few wines and it was so exciting. On top of that Travis
+seemed to enjoy it too.
+
+I got up and walked towards Kian, swaying my hips just a little more. I placed
+my left arm around his neck and asked "Would you like to see more of me?"
+
+Kian scraped his throat and said "It was wrong of me to come here. This goes
+against hotel policies."
+
+"But you're off duty now," I replied, "And you're a guest in our room." Without
+saying a word I placed my hand on his crutch and squeezed the bulge softly. "Or
+is this not telling me something?" I whispered.
+
+Kian looked at me and just like that he kissed me. I put both my arms around
+his neck and kissed him back. I do not know what Travis did and at that moment
+I really didn't care. I took Kians hand and guided him to our bedroom. I closed
+the door behind me and started to kiss this handsome black man again. He put
+his arms around me and then proceeded to take off my shirt. I pushed him on the
+bed and took off his pants and boxers.
+
+I gasped when I saw his pole and smiled. "Oh wow," I said, "that's so nice." I
+took it in my hand, looked Kian in his eyes and slowly licked it. Then I opened
+my mouth and closed my lips around the crown of his penis. Kian moaned as I
+rolled my tongue around this wonderful thing in my mouth. Slowly I made my way
+down and took it in deeper and deeper, until I just had to gag.
+
+After sucking him for a while I noticed Travis standing in the door. He sat
+down in a chair next to our bed as I crawled on top of Kian, placing his cock
+against my very wet pussy. I looked Kian in the eyes, rose up and slowly sat
+down. I moaned as I felt him entering me. "Oh my God, you're so big," I
+exclaimed. It went in so deep and I looked at my husband. He just had the
+biggest smile on his face.
+
+I slowly gyrated my hips so Kian could get in deeper. When I was adjust to his
+size, I slowly moved my hips up and down along his shaft. I leaned over and
+Kian sucked my breasts as I was fucking him. I couldn't believe it, I just
+could not believe I was actually having sex with another man right in front of
+my husband. But I liked it so much, more than I wanted to admit.
+
+After riding him for a while Kian threw me on my back and planted his cock
+inside me again. "Oh yes," I panted, "Fuck me. Fuck me hard with that big dick
+of yours. I want to come all over that cock." Kian started to pound me and I
+almost came instantly. My whole body was shaking as the orgasm took hold of me.
+I pulled him in closer and we kissed, my mouth was wide open and our tongues
+were touching. I could feel him throb and twitch as he slid in and out of me. I
+spread my legs open wider and shouted "Oh my God, yes. Fuck me."
+
+I came multiple times before Kian started to groan deeply, he pulled out and
+with just a few strokes he exploded all over my belly. So much cum landed on me
+and I started to smear it all over my skin. "Oh yes, cum for me." I panted.
+
+When he sagged down next to me, I bent over and cleaned his penis with my
+mouth. I could taste myself mixed with his cum and I rubbed my clit as I was
+doing it. Then I just laid down next to him, pressing my body firmly against
+his. "Thank you," I whispered, "I needed that."
+
+Kian came to his senses, jumped up, got dressed and said "I shouldn't have done
+that. I am so sorry and he just left. Before he even had left the room Travis
+jumped on top of me and pushed his dick inside my still wet pussy. I undressed
+him as he was pumping and said "Oh yes, baby, make love to me. I am so
+sensitive now."
+
+Travis ravaged me and I came twice as he was fucking me. Two real orgasms and I
+planted my new nails into his back. Then I felt him throb and twitch and I
+whispered "Come inside me baby. Give me your cum." Travis exploded and I smiled
+as I felt his seed enter my vagina. "Yes baby. Oh yes."
+
+The next day I didn't see Kian all day. He had called in sick someone told me.

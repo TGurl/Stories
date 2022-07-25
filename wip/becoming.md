@@ -344,4 +344,222 @@ in my mind. That experience was maybe even more eye opening than the whole year
 I had been in college. That summer I decided to never get into that cage again.
 
 ## Chapter Two: Experiments were done
+Once back in college I rushed to our room only to see Marisha wasn't there yet.
+Granted I was a few days early, I had just hoped she would be there too. I
+unpacked everything, gathered some clothes, a towel and everything else I
+needed. The halls were still quiet as I was one of the first to come back. I
+walked towards the bathrooms and took a shower. The six hour drive had been
+tiring and I just wanted to freshen up. It was when I wanted to get dressed
+that I noticed I had forgotten to take my clothes with me. They were still on
+my bed.
 
+In a slight panic I bound the large towel around my body and peeked outside the
+bathroom door to see if anybody was out there. With my heart beating loud I
+took the first step back to our room. Then another and another. I didn't dare
+to walk faster as I was so afraid the towel would come lose. I held everything
+I had brought tightly against my front just make sure the towel wouldn't fall
+when it came loose. Step after step I came closer to the privacy of our room
+and just as I felt like I was going to make it the door next to ours opened and
+Silvia stepped out. "Oh hey Laura," she said, "I didn't know you were back. How
+was summer?"
+
+It was like she wasn't even surprised to see me this way, as it was the most
+normal thing to do. "It was okay," I replied still shaken by seeing her, "I had
+a good time being home. And you?"
+
+"Oh it was the best. You took a shower? That's a great idea, I think I'll do
+that too. Just had a three hour flight and I feel a little sticky. So nice to
+see you again. Want to get some dinner later?"
+
+"That would be nice, I missed the pizza here."
+
+"Pizza! Now that's an even better idea. Give me half an hour or so. I will
+knock when I'm ready okay?" I just nodded and went into our room. I leaned
+against the closed door with my back and let go of a big breath of relieve. She
+hadn't even cared about the way I looked, I thought and I started to giggle.
+More from the release of tension than about the whole situation.
+
+I was just finished braiding my hair when there was a knock on the door. "Come
+in," I said and Silvia came in. "Ready?" she asked and we went to Antonio's,
+the pizza place on campus. Dylan, who owned Antonio's, was happy to see us
+again and we ate the pizza on the central square underneath the old oak tree
+and had a good time together. Silvia and I really didn't know each other that
+well and it just was nice to spend some time with her.
+
+A loud noise woke me up in the middle of the night. From the other room I heard
+Silvia shout "Sorry, didn't mean to do that." and I giggled. But I couldn't
+really catch my sleep again, I just laid there thinking. I switched on my light
+and reached for the book I was reading, _Discovering Aimee_ was the title. It
+was about a girl discovering who she was and it was rather saucy at times, at
+least to me it was.
+
+After reading for a while I put the book away and just stared at the empty bed
+on the other side of the room. Suddenly I felt like I had to go to the bathroom
+and I got up. I reached for my robe and thought "Nah, I'm wearing a gown and
+there are just girls in here." As I was washing my hands afterwards I looked at
+myself in the mirror and a scene from the book popped into my head. "Oh no
+Laura, you can't" I said to myself. But the excitement got the better of me and
+I took off my gown. In just my panties I stepped into that hallway and started
+walking the 200 feet back to our room. Passing Silvia's door was the hardest
+part, I knew she was in there probably asleep. It was the excitement, the
+adrenaline rushing through my veins that almost made me giggle and I just had
+to stop to calm myself. I straightened myself and realized I had been standing
+in front of that door for quite some time and rushed the last steps back to our
+room.
+
+I fell onto my bed, mothering my laughter in my pillow. Just about an hour
+later I stepped outside again, this time my gown was still on my bed. I quietly
+walked the other way and looked around before I walked into the central room
+that connected two hallways. I sat down on one of the couches and leaned
+backwards. I softly giggled as I did so. I just sat there for a few seconds
+before I got up and rushed back to our room. I had done what Aimee had done in
+the book, I had walked the halls of my dorms almost naked and it felt like a
+huge victory. There was just one difference, Aimee had one it during the day
+when everybody was out and I had done it secretly deep into the night.
+
+The next night I waited until everything was quiet again, more people had
+arrived by now and it was almost 3AM when I stepped into that hall. I had
+challenged myself to walk to the central room and go to the far end of the
+other hallway, then turn around and walk back again. My heart was racing all
+the time, I could hear noises come from some of the rooms I was passing while
+being topless. From one room I could hear soft music coming and I stopped to
+dance in front of it for a few seconds before I walked on.
+
+It was mostly the risk of being caught that excited me and when I returned to
+the central room again I sat down on a chair near the window. I sat there for
+almost a minute before I got up to go back to our room. Just as I closed the
+door I heard another one open. I jumped into my bed and pulled the blankets
+over me as if they could come in at any moment. A stupid reaction I soon
+realized, as far as they knew I had just gone to the bathroom just as most
+probably they were.
+
+The next day Marisha came back and I knew my chances of repeating those walks
+were gone, until one night weeks later Marisha was sound asleep. I knew she
+didn't wake that easily and I sneaked out of bed. Again I walked the halls
+topless and by this time everybody had come back making it even more exciting.
+I was halfway down the other hallway when I heard a door open up behind me, I
+jumped into the bathrooms I was just about to pass and rushed into one of the
+stalls. My heart was racing even faster now and I listened how the door opened
+and someone entering. She just went into one of the other stalls, washed her
+hands after and left again.
+
+I waited for a few more minutes, before I dared to take a deep breath again. I
+slowly came out of the stall and out the bathrooms. The hall was empty and I
+rushed back to our room. I had just pulled my blankets over me when I heard
+Marisha moan "Don't make so many noises, I'm sleeping." I drowned my giggles in
+my pillow and fell asleep. It was a few weeks after that Marisha caught me, I
+was just about to step into the hallway when she said "What are you doing?"
+
+Hearing those words felt like she had thrown knifes in my back and I slowly
+closed the door again. She switched on the light and saw me standing there
+topless. "What are you doing?" she asked again and I felt like I was about to
+cry. "Nothing" I replied.
+
+She got out of her bed and said "This isn't nothing. Were you about to streak?"
+
+"Streak?" I repeated. I had never heard of that word before.
+
+"Yes, walk the halls naked?"
+
+"No," I said as I was still wearing my panties."
+
+"You were!" she said with a smile and before I knew it she took off her long
+shirt and her panties. "Let's do it together!" she whispered with a laugh. I
+looked at her for a moment, then proceeded to take off my panties too. Hand in
+hand, both with our other hand in front of our mouths we stepped into the
+hallway. We didn't say a word as we walked through that hall totally naked, we
+reached the central room, turned around and rushed back.
+
+Marisha burst into laughter and asked "How long have you been doing this?"
+
+"A while," I answered truthfully, "I was reading this book." and I handed it to
+her. "I was awake the other night and in the bathroom it just popped into my
+head. The passage where she just walks outside, naked. It was just so exciting
+and before I knew it I was doing it."
+
+"Wow, I would never have thought," Marisha said, "Wow, Laura. You go girl and
+now I've done something I thought I would never do too. Oh, I love you Laura, I
+really do."
+
+We laughed for a little while longer and just chatted, all the time we were
+naked and it started to feel comfortable. Marisha and I had become more than
+just friends that night, we had become sisters.
+
+## Chapter Three: First Steps
+During that second year I started working as a waitress at _Boobs_, a
+restaurant chain where the girls work tight sexy shirts, hotpants and 6 inch
+high heels. At first my feet were hurting like hell after just two hours, but
+the more I walked in them the easier it got and after a few weeks of working
+multiple days a week I got used to it and could manage the whole 4 to six hours
+my shift lasted.
+
+At first I wore my bra when I was at work, but when I noticed I could get more
+in tips when I didn't I stopped doing so. Even though there was a strictly no
+touching policy, it was silently condoned. Only when you complained they would
+act upon it, but I mostly just smiled and walked away. The first time it to me
+I felt abused but also liked it. On top of that they mostly tipped me more
+after they had squeezed my butt cheeks. I noticed myself standing just a little
+closer to our patrons, inviting them to touch me.
+
+One evening one of our guests asked me if he could touch my boobs, I looked
+over my shoulders and as it was one of the more hidden tables I leaned a little
+forward. Him touching me send all kinds of shivers down my spine, mostly good
+ones. When it was time to pay he tipped me almost 100 dollars, which I proudly
+put under my shirt as I made a courtesy towards him.
+
+When my shift was over I had earned almost 170 dollars in tips that night, on
+top of the measly 47 dollars I got from the restaurant. Many of you might say
+working in such a restaurant is demeaning to women, to them I would say give me
+another _regular_ job where I can make 217 dollars as an 19 year old in just
+over 4 hours. To me it was just a job and we were well taken care off. For
+instance we had a closed off space where we could park our cars as not to get
+harassed after work. The parking lot was well lit and there were cameras
+everywhere. This all was installed when one of the girls who worked there
+before I even moved to town got raped when she walked to her car. To make a
+long story short I didn't really mind working there.
+
+It was a Friday night and there was a big party at one of the fraternity
+houses. Marisha and I were both invited to come and for me it would be my first
+time going to a party like that. I wore a nice dress and heels, Marisha a short
+shirt and skirt. We weren't the only girls there and soon enough we stood with
+a couple of them in the kitchen just chatting away.
+
+When a song Marisha liked was played she took my hand and pulled me towards the
+improvised dance floor. There were mostly girls dancing as the boys sat on the
+couches along side of it watching. At first I felt a little uncomfortable, but
+then Marisha whispered "Just have fun with it." and I loosened up a little.
+
+It was almost 2AM and I was on my third white wine of the night, I wasn't a
+heavy drinker and could feel the effects of the alcohol. A nice boy chatted me
+up and before I knew it we were kissing, I just let go and enjoyed it. He took
+my hand and guided me to one of the rooms upstairs. The first one was already
+taken and he pulled me into the room one door over. I dropped on the bed and he
+got on top of me. We started making out and I felt his hands going all over my
+body. Then I got up and took off my dress as sexy as I could.
+
+I laid down on my back and watched him take off his clothes. When I again came
+on top off me, I guided his hard cock inside my wet pussy. "Now fuck me" I
+whispered and so he did. I spread my legs wide as he rammed his love pole deep
+inside me. It took him only a few minutes to pull out and ejaculate over my
+belly. I giggled as he sagged down next to me. I got up, cleaned myself with
+some towel I found laying around, put on my dress and went downstairs.
+
+Only when we walked home I told Marisha what had happened. "What?!" she almost
+shouted, "You did what?" I shushed her and told her again what had happened.
+"Laura!" she said with a smile, "I would never have thought. You dirty slut
+you. Wow, congratulations. How was it?"
+
+"Disappointing," I replied, "He only needed a few minutes. Before I knew it it
+was over and done."
+
+"What did you do?"
+
+"Cleaned up a little, got dressed and went downstairs."
+
+"Wow," she smiled, "Simply wow. Who would have thought that shy girl I met just
+over a year ago would do something like this. I am so proud of you, Laura." I
+took her arm and smiled all the way back to the dorms.
+
+It wasn't like I jumped into bed with anyone or on the first date, all I had
+conquered was keeping it to myself. Marisha and I shared everything, who and
+what we liked.
