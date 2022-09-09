@@ -1301,4 +1301,185 @@ to the car. My mother hugged me "Have a good time," she said, "Take a lot of
 photos and text us every day." I hugged her back and ran towards the car next
 to my father who was dropping me off at the airport. Almost two hours later the
 plane took off to take us to the capitol. I was so excited and chatted with
-Marisha who sat next to me. She was just as excited as I was
+Marisha who sat next to me. I was already happy when my parents signed the
+form, I was even happier when she told me she was going too.
+
+The hotel we stayed at wasn't big, but it was nice and close to downtown.
+Marisha and I got assigned twin rooms separated by a shared door. It was so
+nice to have at least some form of privacy even though the actual rooms were
+rather small. I was unpacking my suitcase and looked over my shoulder when I
+got out the tight dresses and the pairs of heels. I quickly put them in the
+wardrobe and when I was done I opened the shared door and checked if Marisha
+was done unpacking too. I sat down on her bed watching her as she finished
+unpacking.
+
+"Isn't this nice?" I asked.
+
+Marisha jumped on the bed next to me and said "Yes, I've never been this far
+from home before. I was amazed when my parents said yes. Can you believe we're
+actually here?"
+
+Not long after there was a knock on the door. It was one of our teachers
+telling us to come and after we all had gathered in the hallway we went to
+dinner in the restaurant next door. As this was the first night we were allowed
+to explore the immediate surroundings a little but we had to be back in two
+hours. Marisha and I went into several shops and just looked at everything they
+had for sale. "Wow," Marisha said holding up a price tag, "500 dollars?"
+
+I shrugged my shoulders and said "This dress is 2,000. What a deal." Marisha
+burst into laughter much to the dismay of the woman working there. Two hours
+later we went back to the hotel and one of the teachers told us to gather in
+one of the conference rooms in the back. There we got told the schedule of the
+week we would be there and what was expected of us. "No sneaking off," she
+said, "We are responsible for your safety and we don't want anything to happen
+to you. This isn't Emerald Township and it's a lot less safe around here. So
+please be careful with everything you do. On Wednesday we will explore the city
+together and there will be enough time to do some shopping and get some
+presents for the people back home. This is not just a pleasure trip, you are
+meant to learn something too, okay?" We all nodded and some of my fellow
+students still had a few questions before we were asked to go back to our
+rooms.
+
+Marisha and I chatted for a while longer before she went to her room to go to
+sleep. I got ready for bed too and as I laid there I just couldn't sleep. When
+the clock on the nightstand told me it was just after three I got up, quietly
+opened my wardrobe and got out the most sexy dress I had brought with me.
+Twenty minutes later I checked myself in the mirror that was stuck on the
+inside of the door. I had put my hair up and smiled when I saw the long
+earrings dangle from my ears. I had used bright colors for my makeup and now
+came the hardest part: getting out without being seen. I quietly opened the
+door and peeked outside into the hallway. It was all quiet out there and I
+quietly made my way to the other side where the fire escape was. I swore a
+little when I saw the sign telling me not to open it unless there was an
+emergency. "There will possibly be an alarm when I do," I thought and had to
+come up with a new plan.
+
+I quietly walked towards the elevators but instead took the stairs down to the
+lobby as we were staying on the second floor so it wasn't that far. Then I saw
+the way to go. The stairs went all the way down to the underground parking lot
+and there would possibly be a way out of there, I thought. I hid for a moment
+before I opened the door to the parking lot and slipped out. I quickly made my
+way to the other side and tried to open the door that led to the alleyway next
+to the hotel. To my utter surprise it was open and I slipped through it. With
+my heart beating fast I leaned against the wall to put on my heels. Then I
+stood up and walked out the alley way.
+
+The city noise hit me and I knew this was totally different from what I was
+used to. There were still lots of people out on the streets but none of them
+seemed to care that I was among them. With every step I got more confidence and
+after just a few minutes I was just walking and enjoying myself. I made my hips
+sway a little more and my breasts were bouncing with every step I took. After
+going around the block I sneaked back into the hotel and took a breath of
+relieve when I was finally back in my room. I cleaned my face, got into my
+nightgown again and went back to bed.
+
+The next day we went to see the seat of government and other sights, one of the
+teachers explained everything to us and we finished the day visiting the
+biggest library of the country. "Everything that has been written is in here,"
+one of the employees told us, "This building has nine stories going up in the
+air and another thirteen going into the earth. That's where we keep all of our
+most precious books and documents. Including our first constitution. Every
+evening after we close it goes down again and into the vault where we keep it.
+This whole machine you see here goes down with it. The document itself never
+leaves the controlled environment it is in now." We all gasped when our eyes
+fell on the most important document of our nation. I just stared at all the
+signatures of those famous people who had written and signed it.
+
+"Remember," my teacher said, "Back then they were just like you and me. Joseph
+Harrington was a simple farmer back then. A smart one, but still just a
+farmer." I was in total awe when she reminded me of that fact. Back then they
+were just ordinary people, nothing more than either one of us. They had become
+important during the war of independence and had risen to the status they had
+when they signed this document. Joseph was they only one who returned to his
+former profession, the others all went into politics and Mathew Dixon became
+our first president. The overall consensus however was that if Harrington
+hadn't become a farmer he would have been chosen. The stories of his bravery
+during that war were just impossible to ignore.
+
+That night I was able to sneak out again and this time I walked a little
+further from the hotel. In total I was gone for over two hours and instead of
+sneaking back in I just walked inside, the guard hardly looked up at me as I
+walked towards the elevators. He just assumed I was a guest and that I had
+permission to leave and come back as I pleased. I just had to giggle as the
+elevator brought me to the second floor.
+
+The second to last night I just walked out the front door. By now the guard
+just waved as I left the hotel. On the walks the previous nights I had come
+across a street where I had seen other girls walk and very nervously I joined
+them. I got some angry looks but none of them said anything. Cars drove by as I
+just stood there advertising my _wares_. Then all of a sudden a car stopped
+next to me and I stopped walking, leaned over and said "Want some company
+baby?" The man asked me how much and I told him it was fifty dollars. "Get in,"
+was all he said and ten minutes later I walked into a sleazy room of a motel
+where they rented the rooms by the hour.
+
+He sat down on the bed and I took of my dress slowly. My heart was racing and I
+was so horny by this time. He took off his clothes too and I pushed him on his
+back. I got on top of him and guided his hard cock inside me. "Oh yes," I
+panted, "This is what I needed." In my thoughts I was screaming 'Yes, yes.
+Finally! I'm fucking someone for money! I am officially a prostitute!'. It
+didn't take long for me to come for the first time. Then he pulled me down on
+my back, pulled me to the edge of the bed and planted his big fat cock deep
+inside my now fully wet pussy. "You whore," he bit at me, "You like it don't
+you, you filthy whore." I nodded and panted "Yes, I love it so much. I love
+being a whore, a slut. Come on fuck me hard and give it to me. I want you to
+fill me up with that cum. I want you to come deep inside my pussy." It didn't
+take long for him to explode and as I felt him come I came for a second time.
+
+Minutes later he was hard again and this time he fucked me all over the room
+and I loved every single second of it. When the time was up he handed me 100
+dollars and said "You were worth it." I smiled and put the money in between my
+breasts. He dropped me off on the same street he had picked me up at and I
+stayed there for a while longer until another car stopped next to me. This time
+I had sex with the man in a dark alleyway and I made him come inside me too. I
+loved the feeling of men coming inside me, to know I could get pregnant from
+it, it was just too exciting. When this man dropped me off I went back to the
+hotel and had to bite my lip not to giggle as I passed the guard with the
+strangers cum dripping out of me.
+
+When I went to bed I had a huge smile on my face. "You did it," I said to
+myself, "You're officially a whore now." Feeling their cum drip out of me made
+me want to masturbate when suddenly the shared door opened and Marisha walked
+in. "Where were you?" she asked and my heart skipped a beat. There was no need
+to deny it, clearly she knew I had been gone. She sat down on my bed and
+repeated the question. "I was still awake and wanted to see if you were too.
+But your bed was empty and I almost woke up one of the teachers. Where were
+you? Are you okay?"
+
+"Yes," I said, "I'm okay. Please don't tell the teachers. It's something I just
+have to do. I don't really know why, but I just need to sneak out."
+
+"But what do you do? Just walk around?"
+
+"No, not really," I blushed, "Ever since I was little I wanted to -- I dreamed
+of --" I looked up at her and just said it "I wanted to be a prostitute
+Marisha. I don't know why, but I always wanted to be one. And tonight I finally
+did." I showed her the money I had earned and she just stared at me.
+
+"A prostitute?" she stumbled, "A real prostitute? You had sex for money?" I
+shyly nodded and she just looked at me again. "That's so --" I held my breath
+as she continued "hot. That's so hot, I wouldn't dare to do that. Did you
+really? Tell me everything." She seemed excited and had a huge smile on her
+face. I told her everything that had happened that night and after I was done
+she just launched at me. Her lips pressed firmly at mine and without thinking
+about it I opened mine. Our tongues met for the first time and it didn't take
+long for the both of us to be naked. She sucked on my nipples and her hand went
+down to my cum filled pussy. She felt how wet I was and whispered "I didn't
+know you were such a slut." and pushed three fingers inside me. She made me
+come again and I did the same to her. Then she did something I didn't expect,
+she place one leg over me the other one underneath me. She positioned herself
+thus that as she stared into my eyes she pressed her wet cunt against mine.
+
+"Oh yes," she said, "I wanted to do this for so long. And now we can share that
+cum they put inside you. Oh yes, yes, Laura. I love fucking you so much." We
+both moaned and had an orgasm at almost the same time. She than laid down next
+to me and caressed me with her nails. We talked some more until we both fell
+asleep.
+
+The next morning just before we had to get ready to leave she woke me up with
+the words. "Wake up little whore. Wake up." I opened my eyes and felt her
+fingers enter my pussy. I kissed her and moaned. "You little slut," Marisha
+whispered, "You like this don't you? Well, I love it too. Maybe we can both be
+whores together. I've dreamed about it last night and I really want to do it
+too." That's how we made our pact to become whores, prostitutes, high class
+escorts and have sex for a living.
